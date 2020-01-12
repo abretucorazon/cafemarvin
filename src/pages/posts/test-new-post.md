@@ -1,7 +1,8 @@
 ---
-title: Test new post
-subtitle: My very first try to add a post.
+title: 'A test: questions to ask myself today'
+subtitle: ''
 date: 2020-01-12T19:08:32.418Z
+excerpt: Some questions I raise for myself for inspirations.
 template: post
 ---
 Today is the first day of the rest of your life. What are the good questions to ask oneself?
@@ -18,4 +19,4 @@ Today is the first day of the rest of your life. What are the good questions to 
 10. Which of the above is lacking?
 11. Which of the above is working well?
 12. Whom do I feel connected to at the moment?
-13.
+13. What are my obstacles?
