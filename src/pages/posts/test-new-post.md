@@ -2,7 +2,7 @@
 title: 'A test: questions to ask myself today'
 subtitle: ''
 date: 2020-01-12T19:08:32.418Z
-excerpt: Some questions I raise for myself for inspirations.
+excerpt: Some questions I raise for inspirations.
 template: post
 ---
 Today is the first day of the rest of your life. What are the good questions to ask oneself?
