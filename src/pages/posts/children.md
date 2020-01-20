@@ -3,7 +3,7 @@ title: Children
 date: 2020-01-20T02:25:24.205Z
 template: post
 ---
-> *"To all children, young and old"*
+> *To all children, young and old*
 
 \
 Every child comes into the world carrying within themselves a unique code encrypted in their DNA. During childhood they have a mission to “crack” this code in order to unleash their natural talent, and subsequently as an adult, to make a contribution to the world by exercising this talent.
