@@ -27,13 +27,13 @@ There you have it:
 
 Clip of Victor Frankl
 
-<iframe width="420" height="315" src="https://www.youtube.com/embed/fD1512_XJEw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="210" height="153" src="https://www.youtube.com/embed/fD1512_XJEw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <p><strong><br/></strong></p>
 
 Steve Jobs’ Stanford 2005 Commencement speech
 
-<iframe width="420" height="315" src="https://www.youtube.com/embed/D1R-jKKp3NA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="210" height="153" src="https://www.youtube.com/embed/D1R-jKKp3NA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <p><strong><br/></strong></p>
 
