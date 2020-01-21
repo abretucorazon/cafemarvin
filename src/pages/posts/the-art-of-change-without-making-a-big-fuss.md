@@ -39,7 +39,7 @@ In the end you may wonder how do the above suggestions bring upon the elusive ch
 
 Finally, I would like to leave you with this thought about ‘change’, 'being stuck’, and 'learning’:
 
-> *"The biggest prison in the world is about the size of a coconut*
+> *"The biggest prison in the world is about the size of a fresh coconut,*
 >
 > *and it sits between your shoulders”*
 
