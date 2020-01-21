@@ -3,8 +3,6 @@ title: A marriage made in Heaven
 date: 2020-01-21T05:44:46.391Z
 template: post
 ---
-
-
 Greetings,
 
 Over the Christmas holidays I managed to finish reading Steve Jobs’ biography, it reminded me of Victor Frankl’s classic book: “Man in Search of Meaning.” Victor Frankl was an Austrian psychologist who championed the concept that people have a deep emotional need to find meaning out of their life, it is the source of fulfillment and satisfaction that makes all the efforts and hardship of the journey feel worthwhile.
@@ -36,8 +34,6 @@ Clip of Victor Frankl
 Steve Jobs’ Stanford 2005 Commencement speech
 
 <iframe width="420" height="315" src="https://www.youtube.com/embed/D1R-jKKp3NA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-
-
 
 <p><strong><br/></strong></p>
 
