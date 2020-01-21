@@ -23,15 +23,13 @@ But there would be time when we are forced by circumstances to pick one, it woul
 
 There you have it:
 
-“Meaning & Money" – A lesson of Life & Love from Victor Frankl and Steve Jobs.<p><strong><br/></strong></p>
+“Meaning & Money" – A lesson of Life & Love from Victor Frankl and Steve Jobs.
 
-Clip of Victor Frankl
+<p><strong><br/></strong>Victor Frankl</p>
 
 <iframe width="210" height="153" src="https://www.youtube.com/embed/fD1512_XJEw" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <p><strong><br/></strong></p>
-
-Steve Jobs’ Stanford 2005 Commencement speech
 
 <iframe width="210" height="153" src="https://www.youtube.com/embed/D1R-jKKp3NA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
