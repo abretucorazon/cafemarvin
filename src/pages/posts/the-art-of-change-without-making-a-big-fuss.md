@@ -9,7 +9,6 @@ template: post
 >
 > \-  Chinese proverb -
 
-\
 Change is intrinsic to human nature: a manifestation of evolution. It has been said that one meaning of life is to help moving humanity forward, and each person contributes to this grand scheme with their own personal evolution–drawing a parallel to Thich-Nhat-Hanh’s teaching: “*One way to achieve World Peace is for each person to achieve inner peace.*”
 
 Many of us want to change, or improve some aspect of our lives such as fitness, or relationship, or career, …, it is an ongoing process of our personal evolution. And while some succeed in attaining their goal, others feel increasingly exasperated and helpless from repeated attempts; then arises the pervasive sense of being stuck in a rut with no way out. Well, this article attempts to shine some light in this dark tunnel that does not turn out to be the headlight of a train coming right at you. Are you ready for this Secret Art of Change? – “**Continuous Learning.**"
