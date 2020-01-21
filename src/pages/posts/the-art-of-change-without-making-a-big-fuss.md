@@ -3,8 +3,6 @@ title: The Art of Change (without making a big fuss)
 date: 2020-01-21T19:05:51.516Z
 template: post
 ---
-
-
 > The best time to plant a tree was twenty five years ago. 
 >
 > The second best time to plant a tree is today.
@@ -20,8 +18,6 @@ Change is intrinsic to human nature: a manifestation of evolution. It has been s
 Many of us want to change, or improve some aspect of our lives such as fitness, or relationship, or career, …, it is an ongoing process of our personal evolution. And while some succeed in attaining their goal, others feel increasingly exasperated and helpless from repeated attempts; then arises the pervasive sense of being stuck in a rut with no way out. Well, this article attempts to shine some light in this dark tunnel that does not turn out to be the headlight of a train coming right at you. Are you ready for this Secret Art of Change? – “**Continuous Learning.**"
 
 Everyone tends to agree on some abstract level that learning is a powerful mean for personal transformation, except it doesn’t seem to work in practice. This is a similar case to the early life of young Luke Skywalker, a descendant of a long line of Jedi knights who are masters at the use of "The Force” to combat evils, except for young uninitiated Luke Skywalker himself. Below are a few tips that should help everyone to tame “The Force for Change.” I reason when learning fails in practice, it is often due to an impersonal choice of subject that might be popular at the moment, or some authority had decided it is a subject everyone needs to learn regardless of their personal interest. I trust the following tips will make learning enjoyable and empowering for all:
-
-
 
 * **Learn the things that will make your life more beautiful**\
   for examples, learn to dress well, learn about fine food, interior design to make your living quarter more beautiful, to speak and write beautifully (poetry, for example, is the fine art of language.) Keep in mind that “Beautiful is more than just looking pretty,” as Steve Jobs once explained about everything Apple does has to be beautiful. Beauty also includes substance, depth, and truth.
