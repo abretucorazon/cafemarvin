@@ -3,7 +3,7 @@ title: The Art of Change (without making a big fuss)
 date: 2020-01-21T19:05:51.516Z
 template: post
 ---
-<p> \br </p>
+<p> <br/> </p>
 
 > The best time to plant a tree was twenty five years ago. 
 >
@@ -37,6 +37,6 @@ Finally, I would like to leave you with this thought about ‘change’, 'being 
 >
 > *and it sits between your shoulders”*
 
-<p> \br </p>
+<p> <br/> </p>
 
 and a gentle reminder that “The best time to plant a tree is …”
