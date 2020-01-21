@@ -48,6 +48,10 @@ Parents!!! What if we turn the table around to educate and prepare young childre
 **Adults**\
 Your mom’s advice that you heard in your childhood are still valid, for examples, she told you to eat your vegetables when you were little, you should eat your vegetables today as an adult. She told you to hold hand when you cross the street, you still should hold hand when you cross the street today except it is no longer her hand but someone else’s hand…. Similarly, if you have not “cracked” the code as a child to unleash your natural talent, as an adult you still can accomplish this feast using the same process of self-discovery:
 
-* ##### Explore
-* ##### Create
-* ##### Collaborate
+
+
+### Explore
+
+### Create
+
+### Collaborate
