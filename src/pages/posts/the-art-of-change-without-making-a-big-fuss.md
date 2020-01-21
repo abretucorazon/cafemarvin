@@ -3,13 +3,11 @@ title: The Art of Change (without making a big fuss)
 date: 2020-01-21T19:05:51.516Z
 template: post
 ---
-The best time to plant a tree was twenty five years ago. 
-
+> The best time to plant a tree was twenty five years ago. 
+>
 > The second best time to plant a tree is today.
 >
 > \-  Chinese proverb -
-
-<p><strong><br/></strong></p>
 
 \
 Change is intrinsic to human nature: a manifestation of evolution. It has been said that one meaning of life is to help moving humanity forward, and each person contributes to this grand scheme with their own personal evolution–drawing a parallel to Thich-Nhat-Hanh’s teaching: “*One way to achieve World Peace is for each person to achieve inner peace.*”
