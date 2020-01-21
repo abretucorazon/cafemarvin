@@ -3,7 +3,7 @@ title: The Art of Change (without making a big fuss)
 date: 2020-01-21T19:05:51.516Z
 template: post
 ---
-<p> <br/> </p>
+<p><strong><br/></strong></p>
 
 > The best time to plant a tree was twenty five years ago. 
 >
@@ -11,7 +11,7 @@ template: post
 >
 > \-  Chinese proverb -
 
-<p>  <br/> </p>
+<p><strong><br/></strong></p>
 
 \
 Change is intrinsic to human nature: a manifestation of evolution. It has been said that one meaning of life is to help moving humanity forward, and each person contributes to this grand scheme with their own personal evolution–drawing a parallel to Thich-Nhat-Hanh’s teaching: “*One way to achieve World Peace is for each person to achieve inner peace.*”
@@ -37,6 +37,6 @@ Finally, I would like to leave you with this thought about ‘change’, 'being 
 >
 > *and it sits between your shoulders”*
 
-<p> <br/> </p>
+<p><strong><br/></strong></p>
 
 and a gentle reminder that “The best time to plant a tree is …”
