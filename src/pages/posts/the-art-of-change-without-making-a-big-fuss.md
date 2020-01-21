@@ -11,7 +11,7 @@ template: post
 >
 > \-  Chinese proverb -
 
-<p> \br </p>
+<p>  <br/> </p>
 
 \
 Change is intrinsic to human nature: a manifestation of evolution. It has been said that one meaning of life is to help moving humanity forward, and each person contributes to this grand scheme with their own personal evolution–drawing a parallel to Thich-Nhat-Hanh’s teaching: “*One way to achieve World Peace is for each person to achieve inner peace.*”
