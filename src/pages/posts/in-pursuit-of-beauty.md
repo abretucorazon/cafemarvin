@@ -9,7 +9,7 @@ Beauty, according to Steve, is more than just looking pretty. Beauty encompasses
 
 Why bother to pursue Beauty at all in the first place? Because, while knowledge feeds the mind, the heart yearns for Beauty. Without which, Love would not be possible.
 
-This article serves as a prelude to a celebration of beautiful writings with a series of three excerpts taken from classical literature. For now, I will leave you with the following words written by Steve Jobs himself:
+I will leave you with the words of the Master at his best:
 
 \
 
