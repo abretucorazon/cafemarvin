@@ -4,7 +4,7 @@ sections: []
 menus:
   main:
     title: Home
-    weight: 1
+    weight: ''
 template: home
 ---
 
