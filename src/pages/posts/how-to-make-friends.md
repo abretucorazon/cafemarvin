@@ -13,7 +13,7 @@ template: post
 
 This is an excerpt from “**The Little Prince**” by *Antoine de Saint-Exupery,* a French pilot during the First Word-War. Anyone who has taken French in school is likely to have come across this novel that tells the story of a young prince from another planet and his adventures on earth. Interestingly, this is a children’s book dedicated to adults.
 
-Many cultures around the world including French culture greatly value Friendship to the extent of brother and sisterhood. In this excerpt, the Little Prince, on his adventures, came to meet a fox who taught him the value of having good friends, and an unique approach to building lasting friendship. The beauty of this story is in its refreshing insight, its witty dialogue, and an endearing outlook on life from the unencumbered perspective of a child, which often offers great wisdom for adults.
+Many cultures around the world including French culture greatly value Friendship to the extent of brother and sisterhood. In this excerpt, the little prince, on his adventures, came to meet a fox who taught him the value of having good friends, and an unique approach to building lasting friendship. The beauty of this story is in its refreshing insight, its witty dialogue, and an endearing outlook on life from the unencumbered perspective of a child, which often offers great wisdom for adults.
 
 May you walk a way from this reading, carrying with you in your heart this tender little token of truth:
 
