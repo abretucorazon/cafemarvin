@@ -11,11 +11,11 @@ Why bother to pursue Beauty at all in the first place? Because, while knowledge 
 
 I will leave you with the words of the Master at his best:
 
-\
+
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/8rwsuXHA7RA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-\
+
 
 <p> <strong>  </strong> </p>
 
