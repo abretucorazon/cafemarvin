@@ -17,7 +17,7 @@ May you walk a way from this reading, carrying with you in your heart this tende
 
 ### ***The Little Prince***
 
-by *Antoine de Saint-Exupery*
+by Antoine de Saint-Exupery
 
 \
 … But it happened that after walking for a long time through sand, and rocks, and snow, the little prince at last came upon a road. And all roads lead to the abodes of men.
