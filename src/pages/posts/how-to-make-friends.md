@@ -3,11 +3,13 @@ title: How to make friends
 date: 2020-01-26T05:01:31.034Z
 template: post
 ---
+<p> <strong> </br> </strong> </p>
 
 
-> ![image](http://upload.wikimedia.org/wikipedia/en/thumb/0/05/Littleprince.JPG/250px-Littleprince.JPG)
 
+![](/images/250px-Littleprince.JPG)
 
+<p> <strong> </br> </strong> </p>
 
 This is an excerpt from “**The Little Prince**” by *Antoine de Saint-Exupery,* a French pilot during the First Word-War. Anyone who has taken French in school is likely to have come across this novel that tells the story of a young prince from another planet and his adventures on earth. Interestingly, this is a children’s book dedicated to adults.
 
