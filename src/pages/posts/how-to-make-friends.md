@@ -3,23 +3,18 @@ title: How to make friends
 date: 2020-01-26T05:01:31.034Z
 template: post
 ---
-
-
-> ![image](http://upload.wikimedia.org/wikipedia/en/thumb/0/05/Littleprince.JPG/250px-Littleprince.JPG)
-
 This is an excerpt from “**The Little Prince**” by*Antoine de Saint-Exupery,*a French pilot during the First Word-War. Anyone who has taken French in school is likely to have come across this novel that tells the story of a young prince from another planet and his adventures on earth. Interestingly, this is a children’s book dedicated to adults.
 
 Many cultures around the world including French culture greatly value Friendship to the extent of brother and sisterhood. In this excerpt, the Little Prince, on his adventures, came to meet a fox who taught him the value of having good friends, and an unique approach to building lasting friendship. The beauty of this story is in its refreshing insight, its witty dialogue, and an endearing outlook on life from the encumbered perspective of a child, which, more often than not, embodies great wisdom for adults.
 
 May you walk a way from this reading, carrying with you in your heart this tender little token of truth:
 
-
-
 > *“It is the time you have wasted for your rose*
 >
 > *that makes your rose so important.”*
 
 \
+
 <p> <strong> <br/> </strong> </p>
 
 ***The Little Prince***
@@ -30,8 +25,6 @@ by *Antoine de Saint-Exupery*
 … But it happened that after walking for a long time through sand, and rocks, and snow, the little prince at last came upon a road. And all roads lead to the abodes of men.
 
 “Good morning,” he said.
-
-
 
 He was standing before a garden, all a-bloom with roses.
 
@@ -50,8 +43,6 @@ And he was overcome with sadness. His flower had told him that she was the only 
 Then he went on with his reflections: “I thought that I was rich, with a flower that was unique in all the world; and all I had was a common rose. A common rose, and three volcanoes that come up to my knees– and one of them perhaps extinct forever… that doesn’t make me a very great prince…”
 
 And he lay down in the grass and cried.
-
-
 
 It was then that the fox appeared.
 
@@ -91,8 +82,6 @@ But, after some thought, he added:
 
 “I am beginning to understand,” said the little prince. “There is a flower… I think that she has tamed me…”
 
-
-
 “It is possible,” said the fox. “On the Earth one sees all sorts of things.”
 
 “Oh, but this is not on the Earth!” said the little prince.
@@ -129,8 +118,6 @@ The fox gazed at the little prince, for a long time.
 
 “You must be very patient,” replied the fox. “First you will sit down at a little distance from me– like that– in the grass. I shall look at you out of the corner of my eye, and you will say nothing. Words are the source of misunderstandings. But you will sit a little closer to me, every day…”
 
-
-
 The next day the little prince came back.
 
 “It would have been better to come back at the same hour,” said the fox. “If, for example, you come at four o'clock in the afternoon, then at three o'clock I shall begin to be happy. I shall feel happier and happier as the hour advances. At four o'clock, I shall already be worrying and jumping about. I shall show you how happy I am! But if you come at just any time, I shall never know at what hour my heart is to be ready to greet you… One must observe the proper rites…”
@@ -138,8 +125,6 @@ The next day the little prince came back.
 “What is a rite?” asked the little prince.
 
 “Those also are actions too often neglected,” said the fox. “They are what make one day different from other days, one hour from other hours. There is a rite, for example, among my hunters. Every Thursday they dance with the village girls. So Thursday is a wonderful day for me! I can take a walk as far as the vineyards. But if the hunters danced at just any time, every day would be like every other day, and I should never have any vacation at all.”
-
-
 
 So the little prince tamed the fox. And when the hour of his departure drew near–
 
@@ -159,8 +144,6 @@ So the little prince tamed the fox. And when the hour of his departure drew near
 
 “Go and look again at the roses. You will understand now that yours is unique in all the world. Then come back to say goodbye to me, and I will make you a present of a secret.”
 
-
-
 The little prince went away, to look again at the roses.
 
 “You are not at all like my rose,” he said. “As yet you are nothing. No one has tamed you, and you have tamed no one. You are like my fox when I first knew him. He was only a fox like a hundred thousand other foxes. But I have made him my friend, and now he is unique in all the world.”
@@ -168,8 +151,6 @@ The little prince went away, to look again at the roses.
 And the roses were very much embarassed.
 
 “You are beautiful, but you are empty,” he went on. “One could not die for you. To be sure, an ordinary passerby would think that my rose looked just like you– the rose that belongs to me. But in herself alone she is more important than all the hundreds of you other roses: because it is she that I have watered; because it is she that I have put under the glass globe; because it is she that I have sheltered behind the screen; because it is for her that I have killed the caterpillars (except the two or three that we saved to become butterflies); because it is she that I have listened to, when she grumbled, or boasted, or ever sometimes when she said nothing. Because she is *my* rose.
-
-
 
 And he went back to meet the fox.
 
