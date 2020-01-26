@@ -3,6 +3,12 @@ title: How to make friends
 date: 2020-01-26T05:01:31.034Z
 template: post
 ---
+
+
+> ![image](http://upload.wikimedia.org/wikipedia/en/thumb/0/05/Littleprince.JPG/250px-Littleprince.JPG)
+
+
+
 This is an excerpt from “**The Little Prince**” by *Antoine de Saint-Exupery,* a French pilot during the First Word-War. Anyone who has taken French in school is likely to have come across this novel that tells the story of a young prince from another planet and his adventures on earth. Interestingly, this is a children’s book dedicated to adults.
 
 Many cultures around the world including French culture greatly value Friendship to the extent of brother and sisterhood. In this excerpt, the Little Prince, on his adventures, came to meet a fox who taught him the value of having good friends, and an unique approach to building lasting friendship. The beauty of this story is in its refreshing insight, its witty dialogue, and an endearing outlook on life from the unencumbered perspective of a child, which often offers great wisdom for adults.
