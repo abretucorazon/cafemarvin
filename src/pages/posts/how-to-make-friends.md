@@ -1,5 +1,5 @@
 ---
-title: How to make friends
+title: How to become friends
 date: 2020-01-26T05:01:31.034Z
 template: post
 ---
