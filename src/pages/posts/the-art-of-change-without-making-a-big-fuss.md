@@ -1,5 +1,5 @@
 ---
-title: Change (without making a big fuss)
+title: Change - without making a big fuss
 date: 2020-01-21T19:05:51.516Z
 template: post
 ---
