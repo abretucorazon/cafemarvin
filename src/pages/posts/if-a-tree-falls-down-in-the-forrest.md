@@ -3,19 +3,17 @@ title: If a tree falls down in the forrest...
 date: 2020-01-29T05:58:01.069Z
 template: post
 ---
-<p> <strong> </br> </strong> </p>
+
 
 *“If a tree falls down in the forrest and there is no one there, does it make a sound?”*
 
 This proverbial question had kept me puzzled for many years in my early childhood. One day, I finally came up with this answer: “*It does not make any difference whether a sound was made or not since no one is there to hear*.” Incidentally, this article is about Listening.
 
-It has been said, then popularized, and then repeated over and over again in popular culture that the essential key ingredient for a happy relationship is Listening skill. Pop Psychology/Self-Help literature has spilled so much ink in the process of turning this topic into a commercial franchise without accomplishing an observable improvement in the lives of their readers who are earnest in their quest to strengthen the bond of their relationship.\[[MORE]]
+It has been said, then popularized, and then repeated over and over again in popular culture that the essential key ingredient for a happy relationship is Listening skill. Pop Psychology/Self-Help literature has spilled so much ink in the process of turning this topic into a commercial franchise without accomplishing an observable improvement in the lives of their readers who are earnest in their quest to strengthen the bond of their relationship.
 
 For a long long time, I was among these faithful seekers of this elusive “secret” essential to all interactions with loved ones in everyday life. It has been said somewhere that the best way to hide something is to put it right in front of everybody in such a way that no one notice it. It was both a source of frustration and of motivation during all that time searching in the dark, then one day, it dawned on me that there is no earth-shattering secret, the answer is so simple that every young child knows and does so well. It has been right in front of the world since the beginning of time, and I was just beginning to notice.
 
-<p> <strong> </br> </strong> </p>
-
-**The ultimate thing to listen for isnotwords or ideas**
+**The ultimate thing to listen for is not words or ideas**
 
 Around the world, the first thing people say to one another upon their meeting is an equivalence of “Hello” in their own language. And what is the next thing people say to one another after “Hello”?… “How are you?”, "Comment ça va?,“ "Ni hao?,” “¿Cómo estás,” etc…. These questions are meant to inquire about the*emotional state*of the other person. Unfortunately, the meaning of these inquiries was lost through the ages and these inquiries became a mere social custom.*“How are you feeling at the moment?”* was intended to be an inquiry for the first and foremost piece of information that will dictate the tone and the direction for the entire conversation.<p> <strong> </br> </strong> </p>
 
