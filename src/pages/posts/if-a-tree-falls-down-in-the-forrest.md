@@ -5,8 +5,6 @@ template: post
 ---
 <p> <strong> </br> </strong> </p>
 
-
-
 *“If a tree falls down in the forrest and there is no one there, does it make a sound?”*
 
 This proverbial question had kept me puzzled for many years in my early childhood. One day, I finally came up with this answer: “*It does not make any difference whether a sound was made or not since no one is there to hear*.” Incidentally, this article is about Listening.
@@ -25,19 +23,13 @@ Around the world, the first thing people say to one another upon their meeting i
 
 Adults are not much different from children in their conversation with a loved one. Imagine you are having a conversation with a child, what would you want her to take away from this exchange? Advice? Wisdom? Encouragement? Perhaps…, yet, ultimately, you would want the child to walk away from the conversation feeling that she has*been heard*and that she feels better about herself than prior to the conversation. People often engage in a conversation to obtain validation for their ideas, or opinions, or actions which, as listeners, we may not always agree with or approve of. The only truly sincere gift we could offer to loved ones is a validation of their feelings which, to my knowledge, is probably the only Absolute Unquestionable Truth there is under the sun. It’s nearly, if not, impossible to doubt, or deny the truthfulness of a person’s feelings, they are neither right or wrong, good or bad–they just exist. Meanwhile, ideas, opinions, and actions could be either right or wrong, true or false, good or bad–it is a matter of point of view. Offering to acknowledge and to validate someone’s feelings is a sincere and truthful celebration of their being without passing judgements. <p> <strong> </br> </strong> </p>
 
-
-
 **Listen with your eyes**
 
 It has been said the eyes are a window into the soul. To listen to someone with our eyes is a great way to tune in to that person’s emotional state, its ebbs and tides throughout the conversation. Words can obscure or even betray emotions, yet, facial expressions are more faithful in conveying true feelings. To stay tuned to another person’s emotional state forms a foundation for*tactfulness–*it safeguards against inadvertently trampling on people’s feelings during the exchange. As in a dance, I will speak in synch with the other person’s readiness to listen, and conversely, be listening in synch with the other person’s readiness to speak.<p> <strong> </br> </strong> </p>
 
-
-
 **Listen more than you speak**
 
 I read somewhere that God gave humans two ears but only one mouth so that we would be listening twice as much as we speak. An interesting idea that is rather hard to do in practice, for one, if everyone competes to listen then nobody would hardly speaks and we would be spending a great deal of time in company of each other in complete silence. My take on this idea is to make sure that 50% of what I say in a conversation are inquiries–the type of questions that ask for clarifications, elaborations, feedbacks, or motivations behind people’s ideas, opinions, actions, or feelings. Then I make sure that I take the time to listen to their answers.<p> <strong> </br> </strong> </p>
-
-
 
 **Listen to yourself**
 
@@ -47,23 +39,15 @@ As much as the trees in the forrest would not wish to fall down when there is no
 
 To listen such that loved ones feel they have been heard is like to love them such that they feel being loved. It takes great skills and great efforts which make it a great gift to bestow upon precious dear ones. And while love can be many different things for different people, for one…
 
-
-
 ![image](https://66.media.tumblr.com/d766dea2d05904304ebd6bf2e7d89dce/tumblr_inline_mjw1k507Cb1qz4rgp.jpg)
 
 <p> <strong> </br> </strong> </p>
 
-
-
 **An excellent presentation for making a big leap in strengthening relationship with loved ones**
-
-
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/L3zj2gJXdTY" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
 
 <p> <strong></br> </strong> </p>
-
-
 
 [Click here for another point of view on the subject of “Listening”](http://blogs.hbr.org/bregman/2011/10/how-to-really-listen.html?cm_sp=most_widget-_-default-_-How%20to%20Really%20Listen%20%20)
 
