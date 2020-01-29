@@ -5,7 +5,7 @@ template: post
 ---
 
 
-*“If a tree falls down in the forrest and there is no one there, does it make a sound?”*
+> *“If a tree falls down in the forrest and there is no one there, does it make a sound?”*
 
 This proverbial question had kept me puzzled for many years in my early childhood. One day, I finally came up with this answer: “*It does not make any difference whether a sound was made or not since no one is there to hear*.” Incidentally, this article is about Listening.
 
