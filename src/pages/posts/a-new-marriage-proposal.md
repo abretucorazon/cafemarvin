@@ -67,11 +67,7 @@ Estee Lauder divorced her husband Joseph in 1939 and married him again in 1942. 
 
 Bill and Melinda Gates are hard at work on poverty eradication, public health and education.
 
-\
-\
-\
-\
-</br>
+
 
 ![image](https://66.media.tumblr.com/110d3815a8037b1acf87f3cd3f1174e0/tumblr_inline_mn0n1aZF1c1qz4rgp.jpg)
 
