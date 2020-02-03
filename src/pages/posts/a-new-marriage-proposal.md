@@ -80,14 +80,6 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 
 ### Final thoughts
 
-A Shared Mission is
-
-* meaning and purpose
-* sweat, blood, and tears
-* to be cherished by partners who care deeply for each other
-
-
-
 > Doesn’t Love conquer all?
 >
 > Yes, Love does conquer all…
@@ -101,3 +93,9 @@ A Shared Mission is
 > “That which does not make us stronger will eventually kill us.”
 
 </br>
+
+> A Shared Mission is
+>
+> * meaning and purpose
+> * sweat, blood, and tears
+> * to be cherished by partners who care deeply for each other
