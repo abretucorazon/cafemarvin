@@ -54,15 +54,15 @@ Dating for *Partners in Crime* calls for many mini-missions of increasing challe
 
 </br>
 
-![image](https://66.media.tumblr.com/ba806decb4d8b1a322425b3ee3ef1615/tumblr_inline_mm02aaOF661qz4rgp.jpg)
+![image](https://img.timeinc.net/time/photoessays/2010/powerful_women/estee_lauder.jpg)
 
 Estee Lauder divorced her husband Joseph in 1939 and married him again in 1942. Their marriage cemented a lifelong bond and launched a business partnership as well. Joseph quit his business to join hers in order to run the factory and deal with production and the finances, while Estée took charge of the sales staff and marketing.
 
-[Link to a Biography of Estee Lauder](http://www.jewishvirtuallibrary.org/jsource/biography/Lauder.html)\
+[Link to a Biography of Estee Lauder](https://www.jewishvirtuallibrary.org/jsource/biography/Lauder.html)\
 \
 \
 \
-[![image](http://media-cache-ak0.pinimg.com/550x/57/0d/34/570d348319fdd5a3da48678963fbb95e.jpg)](http://pinterest.com/pin/101119954104897684/)
+[![image](https://windupmyskirt.files.wordpress.com/2012/07/bill-melinda-gates.jpg)
 
 Bill and Melinda Gates are hard at work on poverty eradication, public health and education.
 
@@ -70,13 +70,11 @@ Bill and Melinda Gates are hard at work on poverty eradication, public health an
 \
 </br>
 
-![image](https://66.media.tumblr.com/110d3815a8037b1acf87f3cd3f1174e0/tumblr_inline_mn0n1aZF1c1qz4rgp.jpg)
+![image](https://www.beinkandescent.com/images/5665.jpg)
 
 Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa.com.
 
-[Link to the story of Banana Republic](http://www.forbes.com/sites/danschawbel/2012/10/02/the-true-story-behind-the-banana-republic-brand/)
-
-
+[Link to the story of Banana Republic](https://www.forbes.com/sites/danschawbel/2012/10/02/the-true-story-behind-the-banana-republic-brand/)
 
 ### </br>
 
@@ -87,19 +85,11 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 > Yes, Love does conquer all…
 >
 > And Love also goes away when nothing is there to conquer.
-
-
-
-
-
+>
 > “That which does not kill us makes us stronger.” – Nietzsche
 >
 > “That which does not make us stronger will eventually kill us.”
-
-
-
-
-
+>
 > A shared mission is
 >
 > * meaning and purpose
