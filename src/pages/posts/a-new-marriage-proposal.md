@@ -85,21 +85,17 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 > Yes, Love does conquer all…
 >
 > And Love does go away when nothing is there to conquer.
-
-
-
-
-
+>
 > “That which does not kill us makes us stronger.” – Nietzsche
 >
 > “That which does not make us stronger will eventually kill us.”
-
-
-
-
-
-> A shared mission is
 >
-> * meaning and purpose
-> * sweat, blood, and tears
-> * cherished by partners who care deeply for each other
+> A shared mission is...
+>
+> meaning and purpose
+>
+> sweat, blood, and tears
+>
+> cherished by partners who care deeply for each other
+
+</br>
