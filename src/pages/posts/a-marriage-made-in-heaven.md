@@ -1,11 +1,11 @@
 ---
-title: A marriage made in Heaven
+title: Made in Heaven
 date: 2020-01-21T05:44:46.391Z
 template: post
 ---
 Greetings,
 
-Over the Christmas holidays I managed to finish reading Steve Jobs’ biography, it reminded me of Victor Frankl’s classic book: “Man in Search of Meaning.” Victor Frankl was an Austrian psychologist who championed the concept that people have a deep emotional need to find meaning out of their life, it is the source of fulfillment and satisfaction that makes all the efforts and hardship of the journey feel worthwhile.
+Over some Christmas holiday years ago, I managed to finish reading Steve Jobs’ biography, it reminded me of Victor Frankl’s classic book: “Man in Search of Meaning.” Victor Frankl was an Austrian psychologist who championed the concept that people have a deep emotional need to find meaning out of their life, it is the source of fulfillment and satisfaction that makes all the efforts and hardship of the journey feel worthwhile.
 
 Steve Jobs rephrased this concept in a different way in his 2005 Commencement speech at Stanford university: “Your work is going to fill a large part of your life, and the only way to be truly satisfied is to do what you believe is great work. And the only way to do great work is to love what you do. If you haven’t found it yet, keep looking. Don’t settle. As with all matters of the heart, you’ll know when you find it. And, like any great relationship, it just gets better and better as the years roll on. So keep looking until you find it. Don’t settle.“
 
