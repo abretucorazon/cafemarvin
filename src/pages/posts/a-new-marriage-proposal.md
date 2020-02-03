@@ -84,7 +84,7 @@ A Shared Mission is
 
 * meaning and purpose
 * sweat, blood, and tears
-* cherished by partners who care deeply for each other
+* to be cherished by partners who care deeply for each other
 
 
 
