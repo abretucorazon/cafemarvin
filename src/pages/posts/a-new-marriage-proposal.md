@@ -19,19 +19,21 @@ template: post
 >
 > (From the TV series “Life”)
 
-The going rate of divorce nowadays is roughly one out of every two married couples. I often wonder whether divorced couples did marry for love. With some exceptions, it is probably safe to assume that a majority were deeply in love when they tied the knot, yet, somewhere along the way love flew out of the window and gone forever. The best minds in the field of sociology and psychology are still struggling to grapple with this reality as to find a “cure” since divorce is a  leading cause of poverty in the United-States.
+</br> The going rate of divorce nowadays is roughly one out of every two married couples. I often wonder whether divorced couples did marry for love. With some exceptions, it is probably safe to assume that a majority were deeply in love when they tied the knot, yet, somewhere along the way love flew out of the window and gone forever. The best minds in the field of sociology and psychology are still struggling to grapple with this reality as to find a “cure” since divorce is a  leading cause of poverty in the United-States.
 
 Isn’t it a heart-wrenching revelation that love could actually die? A poet once said, “The saddest thing in life is when love goes away.” Isn’t it appalling?… Unconceivable?… That love could die?… What about True Love that conquers all?… For better, for worse until death…? Doesn’t it make you want to jump up and scream: “How can that be possible???….” It is indeed a rude awakening to the realization that love is necessary but not sufficient to sustain long-term relationship. How did love die? What killed our love? 
 
-**Dating Neverland**
+**</br>Dating Neverland**
 
-Couples meet, date, fall in love, move in together, get married, grow apart, get divorced, and the whole cycle is repeated all over again. It seems that love is a strong enough force to compel couples to get to the altar and pledge to live the rest of their lives together. Things would begin to go downhill from there, married life would slowly settle into mundane routines, and boredom would creep in. It seems that love has limited mileage with enough fuel to get couples to as far as to the Altar, afterward, their marriages just run on empty. “We grew apart”, “We stopped communicating”, “We lived separate lives”– a postmortem of a marriage typically includes reasons similar to these. We have perhaps all witnessed or experienced situations in the bedroom where one side of the bed does not know what is happening on the other side. If love is not enough then what does it take to make relationship grow and deepen with time?
+Couples meet, date, fall in love, move in together, get married, grow apart, get divorced, and the whole cycle is repeated all over again. It seems that love is a strong enough force to compel couples to get to the altar and pledge to live the rest of their lives together. Things would begin to go downhill from there, married life would slowly settle into mundane routines, and boredom would creep in. It seems that love has limited mileage with enough fuel to get couples to as far as to the Altar, afterward, their marriages just run on empty. “We grew apart”, “We stopped communicating”, “We lived separate lives”– a postmortem of a marriage typically includes reasons similar to these. We have perhaps all witnessed or experienced situations in the bedroom where one side of the bed does not know what is happening on the other side. If love is not enough then what does it take to make relationship grow and deepen with time? 
 
-**Sleep in the same bed – Dream the same dream**
+**</br> Sleep in the same bed – Dream the same dream**
 
 Couples who party together will eventually grow apart–having fun together is not conducive to deepening the bond of a relationship in the long run. On the other hand, couples who toil away side-by-side through sweat, blood, tears of sorrow, and tears of joy toward realizing a shared dream will look back on their lives in later years with the satisfaction of accomplishment and meaning. They will sit back to reminisce and cherish fond memories of their joint efforts through the peaks and valleys of a journey together that lasts a lifetime.
 
 A shared dream, or a shared mission needs not be monumental as it might sound. It could be small and ordinary, or large and ambitious, or original and beautiful.*It just needs to be cherished by the two hearts that beast in unison.*I have a personal preference for a shared mission over a shared dream: a mission gives a sense of urgency, a call to actions, a commitment to a purpose and to the journey toward accomplishing it.
+
+</br> 
 
 **Breaking the Karma of Dating Neverland**
 
@@ -54,12 +56,7 @@ Dating for *Partners in Crime* calls for many mini-missions of increasing challe
 
 Estee Lauder divorced her husband Joseph in 1939 and married him again in 1942. Their marriage cemented a lifelong bond and launched a business partnership as well. Joseph quit his business to join hers in order to run the factory and deal with production and the finances, while Estée took charge of the sales staff and marketing.
 
-[Link to a Biography of Estee Lauder](http://www.jewishvirtuallibrary.org/jsource/biography/Lauder.html)
-
-\
-\
-\
-\
+[Link to a Biography of Estee Lauder](http://www.jewishvirtuallibrary.org/jsource/biography/Lauder.html)\
 \
 \
 \
@@ -67,7 +64,11 @@ Estee Lauder divorced her husband Joseph in 1939 and married him again in 1942. 
 
 Bill and Melinda Gates are hard at work on poverty eradication, public health and education.
 
-
+\
+\
+\
+\
+</vspan>
 
 ![image](https://66.media.tumblr.com/110d3815a8037b1acf87f3cd3f1174e0/tumblr_inline_mn0n1aZF1c1qz4rgp.jpg)
 
