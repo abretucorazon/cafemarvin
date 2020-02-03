@@ -23,11 +23,11 @@ template: post
 
 Isn’t it a heart-wrenching revelation that love could actually die? A poet once said, “The saddest thing in life is when love goes away.” Isn’t it appalling?… Unconceivable?… That love could die?… What about True Love that conquers all?… For better, for worse until death…? Doesn’t it make you want to jump up and scream: “How can that be possible???….” It is indeed a rude awakening to the realization that love is necessary but not sufficient to sustain long-term relationship. How did love die? What killed our love? 
 
-**</br>Dating Neverland**
+### **</br>Dating Neverland**
 
 Couples meet, date, fall in love, move in together, get married, grow apart, get divorced, and the whole cycle is repeated all over again. It seems that love is a strong enough force to compel couples to get to the altar and pledge to live the rest of their lives together. Things would begin to go downhill from there, married life would slowly settle into mundane routines, and boredom would creep in. It seems that love has limited mileage with enough fuel to get couples to as far as to the Altar, afterward, their marriages just run on empty. “We grew apart”, “We stopped communicating”, “We lived separate lives”– a postmortem of a marriage typically includes reasons similar to these. We have perhaps all witnessed or experienced situations in the bedroom where one side of the bed does not know what is happening on the other side. If love is not enough then what does it take to make relationship grow and deepen with time? 
 
-**</br> Sleep in the same bed – Dream the same dream**
+### **</br>** Sleep in the same bed – Dream the same dream
 
 Couples who party together will eventually grow apart–having fun together is not conducive to deepening the bond of a relationship in the long run. On the other hand, couples who toil away side-by-side through sweat, blood, tears of sorrow, and tears of joy toward realizing a shared dream will look back on their lives in later years with the satisfaction of accomplishment and meaning. They will sit back to reminisce and cherish fond memories of their joint efforts through the peaks and valleys of a journey together that lasts a lifetime.
 
@@ -35,7 +35,7 @@ A shared dream, or a shared mission needs not be monumental as it might sound. I
 
 </br> 
 
-**Breaking the Karma of Dating Neverland**
+### **Breaking the Karma of Dating Neverland**
 
 Dating has always been about doing fun things with another person, having a good time in each other’s company and getting to know the other person. Couples will either fall in love, or will break up and move on to other relationships. It is similar to going on an extended vacation, having the best time together as a couple. There is little resemblance to the journey that lasts a life time called marriage which comes with responsibilities, financial and legal obligations, lost of personal freedom, and even boredom at times. Definitely, not your typical day at the beach. This sounds pretty much like the domain of old-fashioned arranged marriages. Yes, responsibilities, duties, and obligations are the central themes of arranged-marriage, most people would agree that it was a necessity for survival in the old days, and it is a major failure of historical proportion for not factoring romance, passion, joy, and love into the equation. One then wonder if the combination of old-fashioned arranged marriage values with contemporary passion, romance, intimacy and emotional connection would result in total bliss.
 
@@ -44,13 +44,13 @@ Alas, many accomplished successful couples grew apart when their love has comple
 > “Love is not about gazing into each other’s eyes but to look in the same direction.”\
 > </br>
 
-**“Partners in Crime” must have a crime**
+### Partners in Crime” must have a crime
 
 Dating for *Partners in Crime* calls for many mini-missions of increasing challenge that involve Sweat, Blood and Tears. They are mini-versions of a relationship that will stand the test of time. Mini-misions could be volunteering projects, or completing an educational program, or undertaking challenges such as training for a marathon, climbing Kilimanjaro, cycling across a continent….It is essentially a bootcamp for a couple to train at “looking into the same direction” while at the same time, providing plenty of opportunities to “gaze into each other’s eyes.”\
 \
 </br>
 
-**Some well-known couples and their shared missions**
+### **Some well-known couples and their shared missions**
 
 ![image](https://66.media.tumblr.com/ba806decb4d8b1a322425b3ee3ef1615/tumblr_inline_mm02aaOF661qz4rgp.jpg)
 
@@ -66,9 +66,7 @@ Bill and Melinda Gates are hard at work on poverty eradication, public health an
 
 \
 \
-\
-\
-</vspan>
+</br>
 
 ![image](https://66.media.tumblr.com/110d3815a8037b1acf87f3cd3f1174e0/tumblr_inline_mn0n1aZF1c1qz4rgp.jpg)
 
@@ -76,21 +74,30 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 
 [Link to the story of Banana Republic](http://www.forbes.com/sites/danschawbel/2012/10/02/the-true-story-behind-the-banana-republic-brand/)
 
-\
-**Final thoughts**
 
-Doesn’t Love conquer all?
 
- Yes, Love does conquer all…
+### </br>
 
- And Love also goes away when nothing is there to conquer.
+### Final thoughts
 
-“That which does not kill us makes us stronger.” – Nietzsche
-
-“That which does not make us stronger will eventually kill us.”
+> Doesn’t Love conquer all?
+>
+>  Yes, Love does conquer all…
+>
+>  And Love also goes away when nothing is there to conquer.
+>
+> </br>
+>
+> “That which does not kill us makes us stronger.” – Nietzsche
+>
+> “That which does not make us stronger will eventually kill us.”
+>
+> </br>
 
 A Shared Mission is
 
-* Meaning and Purpose
-* Sweat, Blood and Tears
-* Cherished by partners who care deeply for each other
+* meaning and purpose
+* sweat, blood, and tears
+* cherished by partners who care deeply for each other
+
+</br>
