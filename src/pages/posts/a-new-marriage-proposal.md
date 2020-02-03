@@ -88,13 +88,17 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 >
 > And Love also goes away when nothing is there to conquer.
 
-</br>
+
+
+
 
 > “That which does not kill us makes us stronger.” – Nietzsche
 >
 > “That which does not make us stronger will eventually kill us.”
 
-</br>
+
+
+
 
 > A Shared Mission is
 >
