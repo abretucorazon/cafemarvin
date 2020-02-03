@@ -52,6 +52,8 @@ Dating for *Partners in Crime* calls for many mini-missions of increasing challe
 
 ### **Some well-known couples and their shared missions**
 
+
+
 ![image](https://66.media.tumblr.com/ba806decb4d8b1a322425b3ee3ef1615/tumblr_inline_mm02aaOF661qz4rgp.jpg)
 
 Estee Lauder divorced her husband Joseph in 1939 and married him again in 1942. Their marriage cemented a lifelong bond and launched a business partnership as well. Joseph quit his business to join hers in order to run the factory and deal with production and the finances, while Estée took charge of the sales staff and marketing.
