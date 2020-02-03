@@ -52,7 +52,7 @@ Dating for *Partners in Crime* calls for many mini-missions of increasing challe
 
 ### **Some well-known couples and their shared missions**
 
-</div>  </div>
+</br>
 
 ![image](https://66.media.tumblr.com/ba806decb4d8b1a322425b3ee3ef1615/tumblr_inline_mm02aaOF661qz4rgp.jpg)
 
@@ -100,7 +100,7 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 
 
 
-> A Shared Mission is
+> A shared mission is
 >
 > * meaning and purpose
 > * sweat, blood, and tears
