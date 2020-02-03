@@ -84,7 +84,7 @@ Mel and Patricia Ziegler co-founded Banana Republic,The Republic of Tea and ZoZa
 >
 > Yes, Love does conquer all…
 >
-> And Love also goes away when nothing is there to conquer.
+> And Love does go away when nothing is there to conquer.
 
 
 
