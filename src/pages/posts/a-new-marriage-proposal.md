@@ -44,7 +44,7 @@ Alas, many accomplished successful couples grew apart when their love has comple
 
 **“Partners in Crime” must have a crime**
 
-Dating for*Partners in Crime*calls for many mini-missions of increasing challenge that involve Sweat, Blood and Tears. They are mini-versions of a relationship that will stand the test of time. Mini-misions could be volunteering projects, or completing an educational program, or undertaking challenges such as training for a marathon, climbing Kilimanjaro, cycling across a continent….It is essentially a bootcamp for a couple to train at “looking into the same direction” while at the same time, providing plenty of opportunities to “gaze into each other’s eyes.”\
+Dating for *Partners in Crime* calls for many mini-missions of increasing challenge that involve Sweat, Blood and Tears. They are mini-versions of a relationship that will stand the test of time. Mini-misions could be volunteering projects, or completing an educational program, or undertaking challenges such as training for a marathon, climbing Kilimanjaro, cycling across a continent….It is essentially a bootcamp for a couple to train at “looking into the same direction” while at the same time, providing plenty of opportunities to “gaze into each other’s eyes.”\
 \
 </br>
 
