@@ -3,98 +3,94 @@ title: The Mega-Upload
 date: 2020-07-18T15:41:05.925Z
 template: post
 ---
-
-
 Once upon a road trip...
 
+**Uncle Tom**: Once I asked a girl in her early 20’s, “what do people take with them when they die?” She was puzzled, thought about it for a little while and then said: “a legacy.” Do you guys know?
 
+**Ben**: Never thought about it.
 
-**Marvin**: Once I asked a girl in her early 20’s, “what do people take with them when they die?” She was puzzled, thought about it for a little while and then replied: “a legacy.” Do you guys know?
+**Dave**: No idea. It’s not a legacy?
 
-**Al**: Never thought about it.
+**Uncle Tom**: Legacy is something you leave behind, not something you take with you.
 
-**Bob**: No idea. It’s not a legacy?
+**Ben**: I don’t know and I don’t care.
 
-**Marvin**: Legacy is something you leave behind, not something you take with you.
+**Dave**: It’s boring.
 
-**Al**: I don’t know and I don’t care.
+**Uncle Tom**: Ok, how about when you go on a trip and after all the time you spend and all the things you do on that trip, what is left of them after you go home?\[[MORE]]
 
-**Bob**: It’s boring.
+**Dave**: I went hiking on the Rocky mountains and there was a sign on the trail that said: “*Leave only footprint. Take only memories*.”
 
-**Marvin**: Ok, how about when you go on a trip and after all the time you spend and all the things you do on that trip, what is left of them after you go home?\[[MORE]]
+**Ben**: Is it memories?
 
-**Bob**: I went hiking on the Rocky mountains and there was a sign on the trail that said: “*Leave only footprint. Take only memories*.”
+**Uncle Tom**: Yes, after all the time you spend doing all the things you do in life and all the experiences you have, what is left are the memories you will take with you when you die.
 
-**Al**: Is it memories?
+**Ben**: Wicked!
 
-**Marvin**: Yes, after all the time you spend doing all the things you do in life and all the experiences you have, what is left are the memories you will take with you when you die.
+**Dave**: It’s depressing.
 
-**Al**: Wicked!
+**Ben**: Yeah.
 
-**Bob**: It’s depressing.
+**Uncle Tom**: The idea is to collect a great many good memories when you are alive to take with you when you die…
 
-**Al**: Yeah.
+**Dave**: Oh!
 
-**Marvin**: The idea is to collect a great many good memories when you are alive to take with you when you die…
+**Ben**: Pretty deep!
 
-**Bob**: Oh!
+**Uncle Tom**: …when people die they see their life flashing before their eyes—that’s “**The Mega-Upload**" of their memories…
 
-**Al**: Pretty deep!
+**Ben**: Spooky!
 
-**Marvin**: …when people die they see their life flashing before their eyes—that’s “**The Mega-Upload**" of their memories…
+**Dave**: Mmm…
 
-**Al**: Spooky!
+**Uncle Tom**: It’s like Bitcoin, do you know Bitcoin?
 
-**Bob**: Mmm…
+**Dave**: The crypto-currency?…
 
-**Marvin**: It’s like Bitcoin, do you know Bitcoin?
+**Ben**: …You can run a software to make Bitcoins that you can use to buy things. But you need a very fast computer because it takes a long time to make Bitcoins.
 
-**Bob**: The crypto-currency?…
+**Uncle Tom**: That’s right! It takes a lot of heavy number crunching and a long time for the computer to make Bitcoins. That’s why they called it “Bitcoin mining.”
 
-**Al**: …You can run a software to make Bitcoins that you can use to buy things. But you need a very fast computer because it takes a long time to make Bitcoins.
+**Dave**: We know Bitcoins but what does it have to do with dying?
 
-**Marvin**: That’s right! It takes a lot of heavy number crunching and a long time for the computer to make Bitcoins. That’s why they called it “Bitcoin mining.”
+**Uncle Tom**: I think good memories are the currency in Heaven and you will be rich in Heaven if you have collected a lot of good memories when you are alive…
 
-**Bob**: We know Bitcoins but what does it have to do with dying?
+**Ben**: Ah, I got it! Collecting good memories all your life is like Bitcoin mining.
 
-**Marvin**: I think good memories are the currency in Heaven and you will be rich in Heaven if you have collected a lot of good memories when you are alive…
+**Dave**: Hey, smart ass!
 
-**Al**: Ah, I got it! Collecting good memories all your life is like Bitcoin mining.
+**Ben**: You, dumb ass!
 
-**Bob**: Hey, smart ass!
+**Dave**: Shut up!… What if you don’t get to go to Heaven? What if you have to go to Hell? Can you still buy stuffs with good memories?
 
-**Al**: You, dumb ass!
+**Uncle Tom**: Good question.
 
-**Bob**: Shut up!… What if you don’t get to go to Heaven? What if you have to go to Hell? Can you still buy stuffs with good memories?
+**Ben**: Hah! You’re not a dumb ass, but not a smart ass either.
 
-**Marvin**: Good question.
+**Uncle Tom**: Mmm… I don’t think you need any currency in Hell…
 
-**Al**: Hah! You’re not a dumb ass, but not a smart ass either.
+**Dave**: No?… How do you buy stuffs in Hell?
 
-**Marvin**: Mmm… I don’t think you need any currency in Hell…
+**Ben**: Yeah!
 
-**Bob**: No?… How do you buy stuffs in Hell?
+**Uncle Tom**: Because everything in Hell is free! Ha! Ha! Ha!… (LoL)
 
-**Al**: Yeah!
+**Dave**: Bull shit! … You don’t know anything about Heaven or Hell…
 
-**Marvin**: Because everything in Hell is free! Ha! Ha! Ha!… (LoL)
+**Ben**: Yeah, that’s true! You are not dead yet! How do you know what is like in Heaven?
 
-**Bob**: Bull shit! … You don’t know anything about Heaven or Hell…
+**Dave**: You are bullshitting us!
 
-**Al**: Yeah, that’s true! You are not dead yet! How do you know what is like in Heaven?
+**Uncle Tom**: “*If this be error and upon me proved, I never writ, nor no man ever loved*”
 
-**Bob**: You are bullshitting us!
+**Dave**: What does that mean?
 
-**Marvin**: “*If this be error and upon me proved, I never writ, nor no man ever loved*”
+**Ben**: Is that French?
 
-**Bob**: What does that mean?
+**Uncle Tom**: *(sigh)…* Sonnet 116
 
-**Al**: Is that French?
+**Dave**: Sonnet?…
 
-**Marvin**: *(sigh)…* Sonnet 116
+**Ben**: ???
 
-**Bob**: Sonnet?…
-
-**Al**: ???
-
-**Marvin**: Look it up.
+**Uncle Tom**: Look it up.
