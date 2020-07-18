@@ -17,9 +17,9 @@ Once upon a road trip...
 
 **Dave**: It’s boring.
 
-**Uncle Tom**: Ok, how about when you go on a trip and after all the time you spend and all the things you do on that trip, what is left of them after you go home?\[[MORE]]
+**Uncle Tom**: Ok, how about when you go on a trip and after all the time you spend and all the things you do on that trip, what is left of them after you go home?
 
-**Dave**: I went hiking on the Rocky mountains and there was a sign on the trail that said: “*Leave only footprint. Take only memories*.”
+**Dave**: I went hiking on the Rocky mountains, there was a sign on the trail that said: “*Leave only footprint. Take only memories*.”
 
 **Ben**: Is it memories?
 
