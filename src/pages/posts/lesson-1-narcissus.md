@@ -75,7 +75,7 @@ When you love well, your beloved sees their own beauty reflected back to them in
 
 
 
-In this story, Narcissus and the lake, both, saw their own beauty reflected back to them when they gazed into each other's eyes....
+In this story, Narcissus and the lake, both, saw their own beauty reflected back  when they gazed into each other's eyes....
 
 <br> <br> 
 
