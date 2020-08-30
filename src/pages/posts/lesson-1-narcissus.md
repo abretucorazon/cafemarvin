@@ -36,7 +36,7 @@ The lake was silent for some time. Finally, it said:
 
  <br>
 
-Over my last birthday, someone asked me what was my birthday wish. I thought about it for a moment and said:
+On my previous birthday, someone asked me what was my birthday wish. I thought about it for a moment, and said:
 
 
 
@@ -44,7 +44,7 @@ Over my last birthday, someone asked me what was my birthday wish. I thought abo
 
 
 
-Then other people in the group started their questions: "What do you mean?", "Love well is to love selectively, or love a lot anyone?," "Define it for me?"
+Other people in the group started to raise their questions: "What do you mean?", "Love well is to love selectively, or love a lot anyone?," "Define it for me!" "To make it work, it has to be from both sides I guess?"
 
 
 
@@ -52,11 +52,11 @@ This is what I mean:
 
 
 
-"To love well is when the people you love \*feel\* loved, heard, understood. In time, your love helps them grow stronger, more confident and happier."
+"To love well is when the people you love <i>feel</i>  loved, heard, understood. In time, your love helps them grow stronger, more confident and happier."
 
 
 
-To love well is a \*personal\* skill that takes training and practice. For beginners, practice speaking the five love languages is a great start.
+To love well is a <i>personal </i>skill that takes training and practice. For beginners, practice speaking the five love languages is a great start.
 
 
 
