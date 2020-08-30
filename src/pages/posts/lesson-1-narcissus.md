@@ -1,5 +1,5 @@
 ---
-title: "Lesson #1 - Narcissus (work in progress)"
+title: "Lesson #1 - Narcissus and the lake"
 date: 2020-08-23T16:35:21.179Z
 template: post
 ---
@@ -29,3 +29,54 @@ The lake was silent for some time. Finally, it said:
 “I weep because, each time he knelt beside my banks, I could see, in the depths of his eyes, my own beauty reflected.”
 
 “What a lovely story,” the alchemist thought."
+
+ <br>
+
+. . . .
+
+ <br>
+
+Over my last birthday, someone asked me what was my birthday wish. I thought about it for a moment and said:
+
+
+
+"My wish is to love well."
+
+
+
+Then other people in the group started their questions: "What do you mean?", "Love well is to love selectively, or love a lot anyone?," "Define it for me?"
+
+
+
+This is what I mean:
+
+
+
+"To love well is when the people you love \*feel\* loved, heard, understood. In time, your love helps them grow stronger, more confident and happier."
+
+
+
+To love well is a \*personal\* skill that takes training and practice. For beginners, practice speaking the five love languages is a great start.
+
+
+
+If you are not familiar with Gary Chapman's "The five love languages," discover it here: <https://youtu.be/PXQxdWkol5g>\
+ <br>
+
+. . . .
+
+ <br>
+
+The story Narcissus and the lake depicts the state of "being loved well."
+
+
+
+When you love well, your beloved sees their own beauty reflected back to them in your eyes.
+
+
+
+In this story, Narcissus and the lake, both, saw their own beauty reflected back to them when they gazed into each other's eyes....
+
+<br> <br> 
+
+Need I say more?
