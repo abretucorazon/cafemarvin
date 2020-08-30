@@ -1,5 +1,5 @@
 ---
-title: "Love Lesson #1 - Narcissus and the lake"
+title: "Lesson learned #1 - Narcissus and The Lake"
 date: 2020-08-23T16:35:21.179Z
 template: post
 ---
