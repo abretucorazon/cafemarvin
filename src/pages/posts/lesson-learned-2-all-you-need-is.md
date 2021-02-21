@@ -13,7 +13,7 @@ Why messing with an iconic pop culture mantra, you ask?
 
  My answer is part, to catch a free ride on its popularity, and part: evolution, that is to improve on a well-established cultural icon. Pretentious indeed. A word of caution: do not underestimate the imagination of a layperson, no one is yet able to size the vastness of a person's imagination. Or, could imagine the mighty power of one single word: "to", in this case.
 
-How does this word affect this classic icon? 
+How does this single word change the classic pop icon? 
 
 Everything!
 
