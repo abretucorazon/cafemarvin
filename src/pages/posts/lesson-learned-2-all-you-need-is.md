@@ -27,4 +27,4 @@ More importantly, "love" is no longer a mystical possession to go searching for 
 
 So do not go looking for love, you will not find it out there. It is within you,...
 
-all you need is "to love".
+all you need is "to love" well.
