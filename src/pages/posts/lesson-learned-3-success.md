@@ -13,6 +13,8 @@ And the premise of his book is that any person can apply this formula and is wil
 
 Along with millions others, I have applied this formula in several attempts and obtained this result:
 
+burn out = big goal + sustained will power
+
 Sometime ago, on a separate personal pursuit entirely unrelated to personal success, I came across a quote by mother Teresa that sticks me: 
 
 "Try not to do great things, try to do little things with great love"
