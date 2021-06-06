@@ -90,20 +90,4 @@ I love you!
 
 I love you!
 
-#   
-
- 
-
- 
-
- 
-
-##   
-
-
-
-
-
-
-
 ... Now, you try it!
