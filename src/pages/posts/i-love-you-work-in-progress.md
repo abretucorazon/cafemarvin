@@ -38,27 +38,33 @@ I will leave my thoughts on “Far from the madding crowd” for a later article
 
 Unconditional love is a broad and complex topic, I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself, and heal themself emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, this is essential to their well-being and personal fulfillment. Some of her suggestions to make oneself feel loved: 
 
-\- Stop criticizing, judging, and blaming yourself
+<p style="margin-left: 10%;">- Stop criticizing, judging, and blaming yourself </p>
 
-\- Take good care of your health: nutrition, sleep, exercise, supportive relationships - Accept yourself as your are with all your qualities and flaws
+<p style="margin-left: 10%;">- Stop criticizing, judging, and blaming yourself
 
-\- Be kind and cherish yourself
+</p>
 
-\- Be patient with yourself
+<p style="margin-left: 10%;">- Take good care of your health: nutrition, sleep, exercise, supportive relationships </p>
 
-\- Forgive yourself for all the mistakes you have made
+<p style="margin-left: 10%;">- Accept yourself as you are with all your qualities and flaws</p>
 
-\- Stop scaring yourself with worries about the future
+<p style="margin-left: 10%;">- Be kind and cherish yourself</p>
 
-\- Find support from your close relationships when you need help
+<p style="margin-left: 10%;">- Be patient with yourself</p>
 
-\- Practice meditation to connect with your emotions
+<p style="margin-left: 10%;">- Forgive yourself for all the mistakes you have made</p>
+
+<p style="margin-left: 10%;"><p style="margin-left: 10%;">- Stop scaring yourself with worries about the future</p>
+
+<p style="margin-left: 10%;">- Find support from your close relationships when you need help</p>
+
+<p style="margin-left: 10%;">- Practice meditation to connect with your emotions</p>
 
 You can listen to Louise’s talk for further explanations here: 
 
 [https://youtu.be/MMTOZNL_Ybk](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
 
-I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself is potentially a foundation to change the world. It is a stepping stone for world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
+<br>I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself is potentially a foundation to change the world. It is a stepping stone for world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
 
 \- Is this love?
 
