@@ -3,8 +3,6 @@ title: I love you (work in progress)
 date: 2021-05-30T16:04:46.972Z
 template: post
 ---
-I love you
-
 Do you make new year resolutions? I do at the end of December each year, after reviewing the resolutions I made the year before. For 2021, one of my resolution is to bring love back into the mainstream discourse. Do you think the world needs more love in our time? I do! And I notice love has mostly disappeared from popular culture in every media: music, books, movies, TV, and even on social media. We seem to hav lost our collective ability, wisdom, and trust on love. We are afraid to talk about love, feeling confused about this subject while silently feels the void in our life and our relationships, as Oscar Wilde aptly put it, “the pain the dares not speak its name.”
 
 During the pandemic lockdown, along with the rest of the world, I have moved my social life online, mostly in discussion groups. I started my social experiment to “spread the words on love,” I have observed indications of people’s carrying this yearning   and are in need of a way to put into words to tell the world about the feelings and the needs that are alive in their heart. On one occasion, during a meetup event about the law of attraction and money, the host surveyed everyone’s experience of abundance, I had an epiphany, “when my heart is filled with love,” it rings true with reverberations in my mind and struck a chord in  everyone’s heart at that meeting. 
