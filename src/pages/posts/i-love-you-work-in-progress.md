@@ -84,11 +84,11 @@ After all those great ideas, how about the work? 
 
 Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day: each time, I will pause, focus on my voice, and say out loud three times:
 
-I love you!
+<p style="text-align:center;">I love you! </p>
 
-I love you!
+<p style="text-align:center;">I love you! </p>
 
-I love you!
+<p style="text-align:center;">I love you! </p>
 
 <br>
 
