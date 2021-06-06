@@ -82,12 +82,14 @@ Loving oneself unconditionally is a super power to transcend fear, guilt, shame,
 
 After all those great ideas, how about the work? 
 
-Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day: each time, I will pause, focus on my voice, and say out loud three times: 
+Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day: each time, I will pause, focus on my voice, and say out loud three times:
 
 I love you!
 
 I love you!
 
 I love you!
+
+<br>
 
 ... Now, you try it!
