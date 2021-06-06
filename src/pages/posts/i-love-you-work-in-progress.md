@@ -3,14 +3,107 @@ title: I love you (work in progress)
 date: 2021-05-30T16:04:46.972Z
 template: post
 ---
-Do you make new year resolutions? I do at the end of December each year, after reviewing the resolutions I made the year before. For 2021, one of my resolution is to bring love back into the mainstream discourse. Do you think the world needs more love in our time? I do! And I notice love has mostly disappeared from popular culture in every media: music, books, movies, TV, and even on social media. We seem to hav lost our collective ability, wisdom, and trust on love. We are afraid to talk about love, feeling confused about this subject while silently feels the void in our life and our relationships, as Oscar Wilde aptly put it, "the pain the dares not speak its name."
+I love you
 
-During the pandemic lockdown, along with the rest of the world, I have moved my social life online, mostly in discussion groups. I started my social experiment to "spread the words on love," I have observed indications of people's carrying this yearning   and are in need of a way to put into words to tell the world about the feelings and the needs that are alive in their heart. On one occasion, during a meetup event about the law of attraction and money, the host surveyed everyone's experience of abundance, I had an epiphany, "when my heart is filled with love," it rings true with reverberations in my mind and struck a chord in  everyone's heart at that meeting. 
+Do you make new year resolutions? I do at the end of December each year, after reviewing the resolutions I made the year before. For 2021, one of my resolution is to bring love back into the mainstream discourse. Do you think the world needs more love in our time? I do! And I notice love has mostly disappeared from popular culture in every media: music, books, movies, TV, and even on social media. We seem to hav lost our collective ability, wisdom, and trust on love. We are afraid to talk about love, feeling confused about this subject while silently feels the void in our life and our relationships, as Oscar Wilde aptly put it, “the pain the dares not speak its name.”
 
-My journey started a while ago after a five-year relationship ended, and I came to the realization that I was clueless about love and relationship. I didn't have a role model, or knew someone who seemed to have sound wisdom on this subject. That set me on a personal quest to crack the code of love. Like many of my contemporaries who embarked on their personal journey in search for answers to a burning question, I hit the libraries and bookstores to read voraciously every single title remotely related to the subject of love and relationship. Years went by....
+During the pandemic lockdown, along with the rest of the world, I have moved my social life online, mostly in discussion groups. I started my social experiment to “spread the words on love,” I have observed indications of people’s carrying this yearning   and are in need of a way to put into words to tell the world about the feelings and the needs that are alive in their heart. On one occasion, during a meetup event about the law of attraction and money, the host surveyed everyone’s experience of abundance, I had an epiphany, “when my heart is filled with love,” it rings true with reverberations in my mind and struck a chord in  everyone’s heart at that meeting. 
 
-What did I find? A land scape of fragmented theories, ideas, advices, and personal experiences, each touches on a specific aspect of the questions, bundled together they become a background of white noise. My journey was filled with excitements, hopes, confusions, disappointments, dead-ends, and despair the that lead to the resignation that I failed to find a satisfying answer. 
+My journey started a while ago after a five-year relationship ended, and I came to the realization that I was clueless about love and relationship. I didn’t have a role model, or knew someone who seemed to have sound wisdom on this subject. That set me on a personal quest to crack the code of love. Like many of my contemporaries who embarked on their personal journey in search for answers to a burning question, I hit the libraries and bookstores to read voraciously every single title remotely related to the subject of love and relationship. Years went by....
+
+What did I find? A land scape of fragmented theories, ideas, advices, and personal experiences, each touches on a specific aspect of the questions, bundled together they become a background of white noise. My journey was filled with excitements, hopes, confusions, disappointments, dead-ends, and despair the that lead to the resignation that I failed to find a satisfying answer. 
 
 Until...
 
-An accidental encounter with spirituality literature and the concept of Unconditional Love. And a surprised revelation on romantic relationship hidden in the Thomas Hardy's classic novel, "Far from the madding crowd." I made a discovery that almost all world religions and ancient spirituality teachings are founded on the premises of "Love is the answer."
+An accidental encounter with spirituality literature and the concept of Unconditional Love. And a surprised revelation on romantic relationship hidden in the Thomas Hardy’s classic novel, “Far from the madding crowd.” I made a discovery that almost all world religions and ancient spirituality teachings are founded on the premise: “Love is the answer.”
+
+I will leave my thoughts on “Far from the madding crowd” for a later article. Hereby, I will share the lessons I learned on “unconditional love” from these books: 
+
+* “The untethered soul” by Micheal Singer
+* “Nonviolent communication” by Marshall Rosenberg 
+* “Forty rules of love” by Elif Safak
+* “The power is within you” by Louise Hay
+
+\* What is love? There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well: Love is what happens when you open your hear to someone or something.
+
+\* Why “love is the answer?” Because the absence of love is fear
+
+\* French philosopher Descartes is famous for his line: “I think therefore I am.” And he also said, “The heart has reasons, reason knows not off.” For thousands of years the spiritual teachers have explained that the mind os a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
+
+\* Meditation is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self.
+
+\* There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique
+
+\* Love yourself unconditionally.
+
+Unconditional love is a broad and complex topic, I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself, and heal themself emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, this is essential to their well-being and personal fulfillment. Some of her suggestions to make oneself feel loved: 
+
+\- Stop criticizing, judging, and blaming yourself
+
+\- Take good care of your health: nutrition, sleep, exercise, supportive relationships - Accept yourself as your are with all your qualities and flaws
+
+\- Be kind and cherish yourself
+
+\- Be patient with yourself
+
+\- Forgive yourself for all the mistakes you have made
+
+\- Stop scaring yourself with worries about the future
+
+\- Find support from your close relationships when you need help
+
+\- Practice meditation to connect with your emotions
+
+You can listen to Louise’s talk for further explanations here: 
+
+[https://youtu.be/MMTOZNL_Ybk](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
+
+I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself is potentially a foundation to change the world. It is a stepping stone for world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
+
+\- Is this love?
+
+\- Does he/she love me?
+
+\- Is he/she the right one for me?
+
+\- Do I love her/him?
+
+\- Am I in love?
+
+\- Am I in a good relationship?
+
+\- Am I in a co-dependent relationship?
+
+\- Do I stay or leave?
+
+When someone does a good job at loving themself, they will have a first-hand experience of receiving love while at the same time gain the expertise in giving love. They will bring this skill into every close relationship, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
+
+Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that causes much of the suffering in a person’s life. As a wise person once said: “Pain is unavoidable, suffering is optional”
+
+After all those great ideas, how about the work? 
+
+Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day: each time, I will pause, focus on my voice, and say out loud three times: 
+
+I love you!
+
+I love you!
+
+I love you!
+
+#   
+
+ 
+
+ 
+
+ 
+
+##   
+
+
+
+
+
+
+
+... Now, you try it!
