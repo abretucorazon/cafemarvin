@@ -17,12 +17,12 @@ Until...
 
 An accidental encounter with spirituality literature introduced me to the concept of "Unconditional Love," and I stumbled on a surprised revelation on romantic relationship hidden in Thomas Hardy’s classic novel, “Far from the madding crowd.” I also learned that at several major world religions and ancient spirituality teachings are founded on the premise that “Love is the answer.”
 
-I will leave my thoughts on “Far from the madding crowd” for a later article. Hereby, I will share the lessons I learned on “unconditional love” from these books: 
+I will leave my thoughts on “Far from the madding crowd” for a future article. Hereby, I will share the lessons I learned on “unconditional love” from these authors: 
 
-* “The untethered soul” by Micheal Singer
-* “Nonviolent communication” by Marshall Rosenberg 
-* “Forty rules of love” by Elif Safak
-* “The power is within you” by Louise Hay
+*  Micheal Singer,  “The untethered soul” 
+* Marshall Rosenberg, “Nonviolent communication”  
+* Elif Safak, “Forty rules of love” 
+* Louise Hay, “The power is within you” by 
 
 \* What is love? There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well: Love is what happens when you open your hear to someone or something.
 
