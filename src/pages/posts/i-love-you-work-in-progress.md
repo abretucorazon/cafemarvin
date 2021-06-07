@@ -32,7 +32,7 @@ There is still an ongoing debate for philosophers and psycho-analyst since the d
 
 <br>
 
-### \* Why love is the answer? 
+### Why love is the answer? 
 
 Because "the absence of love is fear"
 
