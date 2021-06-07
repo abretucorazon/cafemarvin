@@ -19,14 +19,22 @@ An accidental encounter with spirituality literature introduced me to the concep
 
 I will leave my thoughts on “Far from the madding crowd” for a future article. Hereby, I will share the lessons I learned on “unconditional love” from these authors: 
 
-*  Micheal Singer,  “The untethered soul” 
+* Micheal Singer,  “The untethered soul” 
 * Marshall Rosenberg, “Nonviolent communication”  
 * Elif Safak, “Forty rules of love” 
-* Louise Hay, “The power is within you” by 
+* Louise Hay, “The power is within you”  
 
-\* What is love? There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for: Love is a state of being  when you open your hear to someone or something.
+  <br>
 
-\* Why “love is the answer?” Because the absence of love is fear
+### What is love? 
+
+There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for: Love is a state of being  when you open your hear to someone or something.
+
+<br>
+
+### \* Why love is the answer? 
+
+Because "the absence of love is fear"
 
 \* French philosopher Descartes is famous for his line: “I think therefore I am.” And he also said, “The heart has reasons, reason knows not off.” For thousands of years the spiritual teachers have explained that the mind os a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
 
