@@ -15,7 +15,7 @@ What did I find? A land scape of fragmented theories, ideas, advices, and person
 
 Until...
 
-An accidental encounter with spirituality literature that explore the concept of Unconditional Love, and a surprised revelation on romantic relationship hidden in the Thomas Hardy’s classic novel, “Far from the madding crowd.” I discovered that most world religions and ancient spirituality teachings are founded on the premise that “Love is the answer.”
+An accidental encounter with spirituality literature that introduced me to the concept of "Unconditional Love", a surprised revelation on romantic relationship hidden in the Thomas Hardy’s classic novel, “Far from the madding crowd.” I also discovered that several major world religions and ancient spirituality teachings are founded on the premise that “Love is the answer.”
 
 I will leave my thoughts on “Far from the madding crowd” for a later article. Hereby, I will share the lessons I learned on “unconditional love” from these books: 
 
