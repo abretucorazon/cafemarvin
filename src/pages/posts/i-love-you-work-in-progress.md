@@ -11,11 +11,11 @@ During the pandemic lockdown, along with the rest of the world, I moved my socia
 
 My journey started a while ago after a five-year relationship ended, I came to the realization that I was clueless about love and relationship. I didn’t have a role model, or knew someone who seemed to have sound wisdom on this subject. I decided to embarked on a personal quest: "to crack the code of love." Like many of my contemporaries who embarked on their personal journey in search for answers to a burning question, I hit the libraries and bookstores to read voraciously every single title remotely related to the subject of love and relationship. Years went by....
 
-What did I find? A land scape of fragmented theories, ideas, advices, and personal experiences, each touches on a specific aspect of the questions, bundled together they become a background of white noise. My journey was filled with excitements, hopes, confusions, disappointments, dead-ends, and despair the that lead to the resignation that I failed to find a satisfying answer. 
+What did I find? A land scape of fragmented theories, ideas, advices, and personal experiences, each touches on a specific aspect of the subject, bundled together they become a background of white noise. My journey was filled with excitements, hopes, confusions, disappointments, dead-ends, and despair that lead to the resignation that I failed to find an answer. 
 
 Until...
 
-An accidental encounter with spirituality literature and the concept of Unconditional Love. And a surprised revelation on romantic relationship hidden in the Thomas Hardy’s classic novel, “Far from the madding crowd.” I made a discovery that almost all world religions and ancient spirituality teachings are founded on the premise: “Love is the answer.”
+An accidental encounter with spirituality literature that explore the concept of Unconditional Love, and a surprised revelation on romantic relationship hidden in the Thomas Hardy’s classic novel, “Far from the madding crowd.” I discovered that most world religions and ancient spirituality teachings are founded on the premise that “Love is the answer.”
 
 I will leave my thoughts on “Far from the madding crowd” for a later article. Hereby, I will share the lessons I learned on “unconditional love” from these books: 
 
