@@ -28,7 +28,7 @@ I will leave my thoughts on “Far from the madding crowd” for a future articl
 
 
 
-* **What is love?**  There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for: Love is a state of being  when your heart is open to someone or something.  
+* **What is love?**  There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being  when your heart is open to someone or something.  
 * **Why love is the answer?**  Because "the absence of love is fear" 
 
 **“I think therefore I am.”** French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
