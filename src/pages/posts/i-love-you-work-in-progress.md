@@ -24,7 +24,7 @@ I will leave my thoughts on “Far from the madding crowd” for a future articl
 * Elif Safak, “Forty rules of love” 
 * Louise Hay, “The power is within you” by 
 
-\* What is love? There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well: Love is what happens when you open your hear to someone or something.
+\* What is love? There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for: Love is a state of being  when you open your hear to someone or something.
 
 \* Why “love is the answer?” Because the absence of love is fear
 
