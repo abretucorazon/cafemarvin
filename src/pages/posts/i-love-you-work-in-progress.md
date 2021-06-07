@@ -41,8 +41,6 @@ I will leave my thoughts on “Far from the madding crowd” for a future articl
 
 Unconditional love is a broad and complex topic, I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself, and heal themself emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, this is essential to their well-being and personal fulfillment. Some of her suggestions to make oneself feel loved: 
 
-<p style="margin-left: 10%;">- Stop criticizing, judging, and blaming yourself </p>
-
 <p style="margin-left: 10%;">- Stop criticizing, judging, and blaming yourself
 
 </p>
