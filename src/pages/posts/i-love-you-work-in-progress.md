@@ -29,19 +29,37 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <br>
 
-**What is love?**  
+***What is love?***
 
 There is an ongoing debate for philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  
 
-**Why love is the answer?**  Because "the absence of love is fear" 
+<br>
 
-**“I think therefore I am.”** French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
+***Why love is the answer?*** 
 
-\* Meditation is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self.
+ Because "the absence of love is fear" 
 
-\* There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique
+<br>
 
-\* **Love yourself unconditionally.**
+***“Your heart knows”*** 
+
+French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
+
+<br>
+
+***Meditation*** 
+
+is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self.
+
+<br>
+
+***One love***
+
+There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique
+
+<br>
+
+* **Love yourself unconditionally.***
 
 Unconditional love is a broad and complex topic, I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself, and heal themself emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, this is essential to their well-being and personal fulfillment. Some of her suggestions to make oneself feel loved: 
 
