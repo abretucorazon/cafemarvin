@@ -41,7 +41,7 @@ There is an ongoing debate for philosophers and psychoanalysts since the dawn of
 
 <br>
 
-***“Your heart knows”*** 
+***Your heart knows*** 
 
 French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
 
@@ -59,9 +59,9 @@ There is one way to love, and different relationships with different people. In 
 
 <br>
 
-* **Love yourself unconditionally.***
+***Love yourself unconditionally***
 
-Unconditional love is a broad and complex topic, I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself, and heal themself emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, this is essential to their well-being and personal fulfillment. Some of her suggestions to make oneself feel loved: 
+Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: 
 
 <p style="margin-left: 10%;">- Stop criticizing, judging, and blaming yourself
 
