@@ -17,7 +17,7 @@ Until...
 
 An accidental encounter with spirituality literature introduced me to the concept of "Unconditional Love," and I stumbled on a surprised revelation on romantic relationship hidden in Thomas Hardy’s classic novel, “Far from the madding crowd.” I also learned that at several major world religions and ancient spirituality teachings are founded on the premise that “Love is the answer.”
 
-I will leave my thoughts on “Far from the madding crowd” for a future article. Hereby, I will share the lessons I learned on “unconditional love” from these authors: 
+I will leave my thoughts on “Far from the madding crowd” for another article. For now, I will share the lessons I learned on “unconditional love” from these authors: 
 
 Michael Singer - *“The untethered soul”* 
 
