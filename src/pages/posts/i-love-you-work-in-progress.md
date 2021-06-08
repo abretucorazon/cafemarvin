@@ -27,39 +27,27 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;">Louise Hay - <i>“The power is within you” </i> </p>
 
-<br>
-
-***What is love?***
+<br>***What is love?***
 
 There is an ongoing debate for philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  
 
-<br>
-
-***Why love is the answer?*** 
+<br>***Why love is the answer?*** 
 
  Because "the absence of love is fear" 
 
-<br>
-
-***Your heart knows*** 
+<br>***Your heart knows*** 
 
 French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
 
-<br>
-
-***Meditation*** 
+<br>***Meditation*** 
 
 is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self.
 
-<br>
-
-***One love***
+<br>***One love***
 
 There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique
 
-<br>
-
-***Love yourself unconditionally***
+<br>***Love yourself unconditionally***
 
 Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: 
 
@@ -83,13 +71,9 @@ Unconditional love is a broad and complex topic, for a starting point,  I love t
 
 <p style="margin-left: 10%;">- Practice meditation to connect with your true self</p>
 
-<br>
-
-I invite you to listen to Louise's heart-warming talk below for guidance: 
+<br>I invite you to listen to Louise's heart-warming talk below for guidance: 
 
 [https://youtu.be/MMTOZNL_Ybk](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
-
-<br>
 
 <br>I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself is potentially a foundation to change the world. It is a stepping stone for world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
 
