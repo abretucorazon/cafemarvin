@@ -19,15 +19,19 @@ An accidental encounter with spirituality literature introduced me to the concep
 
 I will leave my thoughts on “Far from the madding crowd” for another article. For now, I will share the lessons I learned on “unconditional love” from these authors: 
 
-Michael Singer - *“The untethered soul”* 
+<p style="margin-left: 10%;">  Michael Singer - <i> “The untethered soul”</i> </p>
 
-Marshall Rosenberg - *“Nonviolent communication”*  
+<p style="margin-left: 10%;"> Marshall Rosenberg - <i>“Nonviolent communication”</i>  </p>
 
-Elif Safak - *“Forty rules of love”* 
+<p style="margin-left: 10%;">Elif Safak - <i>“Forty rules of love”</i> </p>
 
-Louise Hay - *“The power is within you”*  
+<p style="margin-left: 10%;">Louise Hay - <i>“The power is within you” </i> </p>
 
-**What is love?**  There is still an ongoing debate for philosophers and psycho-analyst since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being  when your heart is open to someone or something.  
+<br>
+
+**What is love?**  
+
+There is an ongoing debate for philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  
 
 **Why love is the answer?**  Because "the absence of love is fear" 
 
