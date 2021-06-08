@@ -63,13 +63,13 @@ There is one way to love, and different relationships with different people. In 
 
 Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: 
 
-<p style="margin-left: 10%;">- Stop criticizing, judging, and blaming yourself
+<p style="margin-left: 10%;">- Stop criticizing, judging, or blaming yourself
 
 </p>
 
 <p style="margin-left: 10%;">- Take good care of your health: nutrition, sleep, exercise, supportive relationships </p>
 
-<p style="margin-left: 10%;">- Accept yourself as you are with all your qualities and flaws</p>
+<p style="margin-left: 10%;">- Accept yourself as you are, with all your qualities and flaws</p>
 
 <p style="margin-left: 10%;">- Be kind and cherish yourself</p>
 
@@ -81,11 +81,15 @@ Unconditional love is a broad and complex topic, for a starting point,  I love t
 
 <p style="margin-left: 10%;">- Find support from your close relationships when you need help</p>
 
-<p style="margin-left: 10%;">- Practice meditation to connect with your emotions</p>
+<p style="margin-left: 10%;">- Practice meditation to connect with your true self</p>
 
-You can listen to Louise’s talk for further explanations here: 
+<br>
+
+I invite you to listen to Louise's heart-warming talk below for guidance: 
 
 [https://youtu.be/MMTOZNL_Ybk](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
+
+<br>
 
 <br>I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself is potentially a foundation to change the world. It is a stepping stone for world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
 
