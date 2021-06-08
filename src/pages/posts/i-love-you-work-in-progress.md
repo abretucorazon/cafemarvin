@@ -77,21 +77,7 @@ Unconditional love is a broad and complex topic, for a starting point,  I love t
 
 <br>I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself is potentially a foundation to change the world. It is a stepping stone for world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
 
-\- Is this love?
-
-\- Does he/she love me?
-
-\- Is he/she the right one for me?
-
-\- Do I love her/him?
-
-\- Am I in love?
-
-\- Am I in a good relationship?
-
-\- Am I in a co-dependent relationship?
-
-\- Do I stay or leave?
+Is this love?  Does he/she love me? Is he/she the right one for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?
 
 When someone does a good job at loving themself, they will have a first-hand experience of receiving love while at the same time gain the expertise in giving love. They will bring this skill into every close relationship, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
 
