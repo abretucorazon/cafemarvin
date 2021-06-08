@@ -79,7 +79,7 @@ Unconditional love is a broad and complex topic, for a starting point,  I love t
 
 Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?
 
-When someone does a good job at loving themself, they will have a first-hand experience of receiving love while at the same time gain the expertise in giving love. They will bring this skill into every close relationship, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
+When someone does a good job at loving themself, they will have a first-hand experience of receiving love while at the same time, honing their skills in giving love. They will, later on, bring these skills into their close relationships, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
 
 Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that causes much of the suffering in a person’s life. As a wise person once said: “Pain is unavoidable, suffering is optional”
 
