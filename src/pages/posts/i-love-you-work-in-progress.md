@@ -45,7 +45,7 @@ is commonly practiced by many spiritual teachings as an effective method to quie
 
 <br>***One love***
 
-There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique
+There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique by nature.
 
 <br>***Love yourself unconditionally***
 
