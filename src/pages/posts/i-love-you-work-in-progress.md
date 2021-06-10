@@ -25,19 +25,21 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;">Elif Safak - <i>“Forty rules of love”</i> </p>
 
-<p style="margin-left: 10%;">Louise Hay - <i>“The power is within you” </i> </p>
+<p style="margin-left: 10%;margin-bottom:9%">Louise Hay - <i>“The power is within you” </i> </p>
 
-<br>***What is love?***
+<p style="margin-bottom:-0.5%"> <b><i>What is love?</i></b></p>
 
-There is an ongoing debate for philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  
+<p style="margin-bottom:9%">There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  </p>
 
-<br>***Why love is the answer?*** 
+<p style="margin-bottom:-0.5%"><b><i>Why love is the answer? </i></b></p>
 
- Because "the absence of love is fear" 
+<p style="margin-bottom:9%">Because "the absence of love is fear" </p>
 
-<br>***Your heart knows*** 
+<p style="margin-bottom:-0.5%"><b><i>Your heart knows</i></b></p>
 
-French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.
+ 
+
+<p style="margin-bottom:9%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
 
 <br>***Meditation*** 
 
