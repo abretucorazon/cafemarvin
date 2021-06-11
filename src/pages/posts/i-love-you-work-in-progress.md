@@ -25,17 +25,17 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;">Elif Safak,  <i>“The forty rules of love”</i> </p>
 
-<p style="margin-left: 10%;margin-bottom:9%">Louise Hay,  <i>“The power is within you” </i> </p>
+<p style="margin-left: 10%">Louise Hay,  <i>“The power is within you” </i> </p>
 
-<p style="margin-bottom:0%"> <b><i>What is love?</i></b></p>
+<p style="margin-bottom:0%;margin-top:9%"> <b><i>What is love?</i></b></p>
 
-<p style="margin-bottom:7%">There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: <i>Love is a state of being when your heart is open to someone or something.  </i></p>
+<p>There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: <i>Love is a state of being when your heart is open to someone or something.  </i></p>
 
-<p style="margin-bottom:0%"><b><i>Why love is the answer? </i></b></p>
+<p style="margin-bottom:0%;margin-top:7%"><b><i>Why love is the answer? </i></b></p>
 
-<p style="margin-bottom:7%">Because "the absence of love is fear" </p>
+<p>Because "the absence of love is fear" </p>
 
-<p style="margin-bottom:0%"><b><i>Your heart knows</i></b></p>
+<p style="margin-bottom:0%;margin-top:7%""><b><i>Your heart knows</i></b></p>
 
  <p style="margin-bottom:7%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not of.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
 
