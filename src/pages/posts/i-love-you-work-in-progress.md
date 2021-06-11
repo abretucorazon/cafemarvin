@@ -37,7 +37,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-bottom:-1%"><b><i>Your heart knows</i></b></p>
 
- <p style="margin-bottom:7%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
+ <p style="margin-bottom:7%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not of.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
 
 <p style="margin-bottom:-1%"><b><i>Meditation </i></b></p>
 
@@ -85,9 +85,11 @@ When someone does a good job at loving themself, they will have a first-hand exp
 
 Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that causes much of the suffering in a person’s life. As a wise person once said: “Pain is unavoidable, suffering is optional” </p>
 
+<p style="margin-bottom:-1%;margin-top:7%"><b><i>The training </i></b></p>
+
 After all those great ideas, how about the work? 
 
-Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day: each time, I will pause, focus on my voice, and say out loud three times:
+Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day, ... each time, ... I will pause, ... focus on my voice, ... and say out loud three times:
 
 <p style="text-align:center;">I love you! </p>
 
@@ -98,3 +100,5 @@ Well, as part of my self-love training, I have been practising this simple heart
 <br>
 
 ... Now, you try it!
+
+<br>
