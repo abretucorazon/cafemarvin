@@ -27,27 +27,27 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;margin-bottom:9%">Louise Hay,  <i>“The power is within you” </i> </p>
 
-<p > <b><i>What is love?</i></b></p>
+<p style="margin-bottom:0%"> <b><i>What is love?</i></b></p>
 
 <p style="margin-bottom:7%">There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: <i>Love is a state of being when your heart is open to someone or something.  </i></p>
 
-<p><b><i>Why love is the answer? </i></b></p>
+<p style="margin-bottom:0%"><b><i>Why love is the answer? </i></b></p>
 
 <p style="margin-bottom:7%">Because "the absence of love is fear" </p>
 
-<p><b><i>Your heart knows</i></b></p>
+<p style="margin-bottom:0%"><b><i>Your heart knows</i></b></p>
 
  <p style="margin-bottom:7%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not of.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
 
-<p><b><i>Meditation </i></b></p>
+<p style="margin-bottom:0%"><b><i>Meditation </i></b></p>
 
 <p style="margin-bottom:7%"> is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self. </p>
 
-<p><b><i> One love </i></b></p>
+<p style="margin-bottom:0%"><b><i> One love </i></b></p>
 
 <p style="margin-bottom:7%"> There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique by nature. </p>
 
-<p><b><i>Love yourself unconditionally </i></b></p>
+<p style="margin-bottom:0%"><b><i>Love yourself unconditionally </i></b></p>
 
 <p>  Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: </p>
 
@@ -79,7 +79,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 </p>
 
-<p style="margin-bottom:-1%;margin-top:7%"><b><i> To love well </i></b></p>
+<p style="margin-bottom:0%;margin-top:7%"><b><i> To love well </i></b></p>
 
  <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
 
