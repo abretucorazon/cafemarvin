@@ -75,7 +75,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-bottom:0%>I invite you to listen to Louise's heart-warming talk at the link below for more guidance:  </p>
 
-[https://youtu.be/MMTOZNL_Ybk](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
+[https://youtu.be/MMTOZNL_Ybk ](https://youtu.be/MMTOZNL_Ybk)
 
 <p style="margin-bottom:0%;margin-top:7%"><b><i> To love well </i></b></p>
 
