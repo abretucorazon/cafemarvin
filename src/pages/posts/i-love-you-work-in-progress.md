@@ -73,7 +73,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <br>
 
-<p>I invite you to listen to Louise's heart-warming talk at the link below for more guidance:  
+<p style="margin-bottom:0%>I invite you to listen to Louise's heart-warming talk at the link below for more guidance:  
 
 [https://youtu.be/MMTOZNL_Ybk ](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
 
