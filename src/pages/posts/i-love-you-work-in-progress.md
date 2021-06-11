@@ -99,6 +99,6 @@ Well, as part of my self-love training, I have been practising this simple heart
 
 <br>
 
-... Now, you try it!
+.... Now, you try it!
 
 <br>
