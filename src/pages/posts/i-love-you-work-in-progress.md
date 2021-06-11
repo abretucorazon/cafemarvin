@@ -23,7 +23,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;"> Marshall Rosenberg - <i>“Nonviolent communication”</i>  </p>
 
-<p style="margin-left: 10%;">Elif Safak - <i>“Forty rules of love”</i> </p>
+<p style="margin-left: 10%;">Elif Safak - <i>“The forty rules of love”</i> </p>
 
 <p style="margin-left: 10%;margin-bottom:9%">Louise Hay - <i>“The power is within you” </i> </p>
 
