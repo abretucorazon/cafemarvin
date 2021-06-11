@@ -89,7 +89,7 @@ When someone does a good job at loving themself, they will have a first-hand exp
 
 Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that causes much of the suffering in a person’s life. As a wise person once said: “Pain is unavoidable, suffering is optional” </p>
 
-<p margin-top:7%"><b><i>The training </i></b></p>
+<p style="margin-bottom:0%;margin-top:7%"><b><i>The training </i></b></p>
 
 After all those great ideas, how about the work? 
 
