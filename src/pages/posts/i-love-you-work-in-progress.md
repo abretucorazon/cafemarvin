@@ -63,7 +63,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;">- Be patient with yourself</p>
 
-<p style="margin-left: 10%;">- Forgive yourself for all the mistakes you have made</p>
+<p style="margin-left: 10%;">- Forgive yourself for all the mistakes you  made</p>
 
 <p style="margin-left: 10%;"><p style="margin-left: 10%;">- Stop scaring yourself with worries about the future</p>
 
