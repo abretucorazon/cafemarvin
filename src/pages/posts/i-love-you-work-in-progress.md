@@ -27,7 +27,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;margin-bottom:9%">Louise Hay - <i>“The power is within you” </i> </p>
 
-<p style="margin-bottom:-1%"> <b><i>What is love?</i></b></p>
+<p style="margin-bottom:0%"> <b><i>What is love?</i></b></p>
 
 <p style="margin-bottom:7%">There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  </p>
 
