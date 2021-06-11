@@ -27,37 +27,35 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-left: 10%;margin-bottom:9%">Louise Hay - <i>“The power is within you” </i> </p>
 
-<p style="margin-bottom:-0.5%"> <b><i>What is love?</i></b></p>
+<p style="margin-bottom:-1%"> <b><i>What is love?</i></b></p>
 
-<p style="margin-bottom:9%">There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  </p>
+<p style="margin-bottom:7%">There is an ongoing debate among philosophers and psychoanalysts since the dawn of civilization on the definition of love. Michael Singer offers a simple definition that seems to work well for me: Love is a state of being when your heart is open to someone or something.  </p>
 
-<p style="margin-bottom:-0.5%"><b><i>Why love is the answer? </i></b></p>
+<p style="margin-bottom:-1%"><b><i>Why love is the answer? </i></b></p>
 
-<p style="margin-bottom:9%">Because "the absence of love is fear" </p>
+<p style="margin-bottom:7%">Because "the absence of love is fear" </p>
 
-<p style="margin-bottom:-0.5%"><b><i>Your heart knows</i></b></p>
+<p style="margin-bottom:-1%"><b><i>Your heart knows</i></b></p>
 
- 
+ <p style="margin-bottom:7%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
 
-<p style="margin-bottom:9%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not off.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
+<p style="margin-bottom:-1%"><b><i>Meditation </i></b></p>
 
-<br>***Meditation*** 
+<p style="margin-bottom:7%"> is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self. </p>
 
-is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self.
+<p style="margin-bottom:-1%"><b><i> One love </i></b></p>
 
-<br>***One love***
+<p style="margin-bottom:7%"> There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique by nature. </p>
 
-There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique by nature.
+<p style="margin-bottom:-1%"><b><i>Love yourself unconditionally </i></b></p>
 
-<br>***Love yourself unconditionally***
-
-Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: 
+<p>  Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: </p>
 
 <p style="margin-left: 10%;">- Stop criticizing, judging, or blaming yourself
 
 </p>
 
-<p style="margin-left: 10%;">- Take good care of your health: nutrition, sleep, exercise, supportive relationships </p>
+<p style="margin-left: 10%;">- Take care of your health: nutrition, sleep, exercise, supportive relationships </p>
 
 <p style="margin-left: 10%;">- Accept yourself as you are, with all your qualities and flaws</p>
 
@@ -73,17 +71,19 @@ Unconditional love is a broad and complex topic, for a starting point,  I love t
 
 <p style="margin-left: 10%;">- Practice meditation to connect with your true self</p>
 
-<br>I invite you to listen to Louise's heart-warming talk below for guidance: 
+<br>I invite you to listen to Louise's heart-warming talk at the link below for more guidance: 
 
 [https://youtu.be/MMTOZNL_Ybk](https://youtu.be/MMTOZNL_Ybk%22%20%5Cl%20%22-1)
 
-<br>I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
+<p style="margin-bottom:-1%;margin-top:7%"><b><i> To love well </i></b></p>
 
-Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?
+ <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
+
+<i>Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?</i>
 
 When someone does a good job at loving themself, they will have a first-hand experience of receiving love while at the same time, honing their skills in giving love. They will, later on, bring these skills into their close relationships, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
 
-Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that causes much of the suffering in a person’s life. As a wise person once said: “Pain is unavoidable, suffering is optional”
+Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that causes much of the suffering in a person’s life. As a wise person once said: “Pain is unavoidable, suffering is optional” </p>
 
 After all those great ideas, how about the work? 
 
