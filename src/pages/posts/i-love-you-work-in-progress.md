@@ -81,13 +81,13 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/MMTOZNL_Ybk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-<p style="margin-bottom:0%;margin-top:7%"><b><i> To love well </i></b></p>
+<p style="margin-bottom:0%;margin-top:7%"><b><i> Why love oneself? </i></b></p>
 
  <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life. I have started in my training during the pandemic lockdown. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn everyone into an expert on love, for whom the common puzzling questions on love and relationship of our time, are trivial common knowledge. Some of these questions are:
 
-<i>Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?</i>
+<i>Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a healthy relationship?  Am I in a co-dependent relationship? Do I stay or leave?...</i>
 
-When someone does a good job at loving themself, they will have a first-hand experience of receiving love while at the same time, honing their skills in giving love. They will, later on, bring these skills into their close relationships, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
+When someone does a good job at loving themself, they will have a first-hand experience of receiving love, while at the same time, honing their skills in giving love. They will, later on, bring these skills into their close relationships, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
 
 Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that cause much of the suffering in life. As a wise person once said: “Pain is unavoidable, suffering is optional” </p>
 
