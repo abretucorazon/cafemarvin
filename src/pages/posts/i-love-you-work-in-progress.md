@@ -89,13 +89,13 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 When someone does a good job at loving themself, they will have a first-hand experience of receiving love, while at the same time, honing their skills in giving love. They will subsequently bring these skills into their close relationships, and will likely to succeed in making their close ones feel loved. With this process, everyone has the power to spread love all over the world, lifting civilization out of fear and power, into love and peace.
 
-Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that cause much of the suffering in life. As a wise person once said: “Pain is unavoidable, suffering is optional” </p>
+Loving oneself unconditionally is a super power to transcend fear, guilt, shame, social coercion, that are responsible for much of the suffering in life. As a wise person once said: “Pain is unavoidable, suffering is optional” </p>
 
-<p style="margin-bottom:0%;margin-top:7%"><b><i>The training </i></b></p>
+<p style="margin-bottom:0%;margin-top:7%"><b><i>My "Jedi" training </i></b></p>
 
-After all those great ideas, how about the work? 
+After all those great ideas, how about the work? Here is an example:
 
-Well, as part of my self-love training, I have been practising this simple heart-warming routine several times a day, ... each time, ... I will pause, ... focus on my voice, ... and say out loud three times:
+As part of my self-love training, I have been practising this simple heart-warming routine several times a day, ... each time, ... I will pause, ... focus on my voice, ... and say out loud three times:
 
 <p style="text-align:center;">I love you! </p>
 
