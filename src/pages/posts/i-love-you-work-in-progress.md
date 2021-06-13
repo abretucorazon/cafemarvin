@@ -111,7 +111,7 @@ Here is an example, as part of my self-love training, I have been practising thi
 
 <br>
 
-<p style="text-align:center;margin-bottom:10%;">THE END</p>
+<p style="text-align:center;margin-bottom:15%;">THE END</p>
 
 <br>
 
