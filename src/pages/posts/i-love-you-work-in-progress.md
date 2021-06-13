@@ -41,19 +41,19 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-bottom:0%;margin-top:7%""><b><i>Your heart knows</i></b></p>
 
- <p style="margin-bottom:7%">French philosopher Descartes is famous for having said this phrase,  and he also said, “The heart has reasons, Reason knows not of.” For thousands of years the spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom which are domains of the heart.</p>
+ <p style="margin-bottom:7%">French philosopher Descartes is famous for having said: "I think therefore I am,"  and he also said, “The heart has reasons, Reason knows not of.” For thousands of years spiritual teachers have explained that the mind is a marvellous instrument designed for reasoning about the physical world. It is, however, incapable to understand the working of love, or relationship, or wisdom, which are domains of the heart.</p>
 
 <p style="margin-bottom:0%"><b><i>Meditation </i></b></p>
 
-<p style="margin-bottom:7%"> is commonly practiced by many spiritual teachings as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and to connect with one’s true self. </p>
+<p style="margin-bottom:7%"> is commonly taught by spiritual teachers as an effective method to quiet the noisy mind in order to hear the whispers of the heart, and connect with one’s own truth. </p>
 
 <p style="margin-bottom:0%"><b><i> One love </i></b></p>
 
-<p style="margin-bottom:7%"> There is one way to love, and different relationships with different people. In another word, love is the same across all relationships while each relationship is unique by nature. </p>
+<p style="margin-bottom:7%"> There is one way to love, and many different relationships with different people. In another word, love is the same across all relationships while each relationship is unique  in its own right. </p>
 
 <p style="margin-bottom:0%"><b><i>Love yourself unconditionally </i></b></p>
 
-<p>  Unconditional love is a broad and complex topic, for a starting point,  I love the simplicity and the practicality of Louise Hay’s teaching. She spent her whole career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. According to Louise, everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved: </p>
+<p>  Unconditional love is a broad and complex topic. For a starting point,  I love the simplicity and practicality of Louise Hay’s teaching. She spent her entire career helping people to love themself unconditionally, and heal their life  emotionally and physically in the process. Louise believed everyone is responsible to love themself unconditionally, it is essential to their well-being and personal growth. Some of her suggestions to make oneself feel loved are: </p>
 
 <p style="margin-left: 10%;">- Stop criticizing, judging, or blaming yourself
 
