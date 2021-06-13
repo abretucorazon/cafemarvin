@@ -17,7 +17,7 @@ My journey started a while ago, after a five-year relationship ended. I came to 
 
 What did I find? A land scape of fragmented theories, ideas, advices, and personal experiences, each touches on a specific aspect of love, bundled together they become a background of white noise. My journey was filled with excitements, hopes, confusions, disappointments, dead-ends, and despair that lead to the resignation that I failed to find an answer. 
 
-Until...
+Until ...
 
 An accidental encounter with spirituality literature introduced me to the concept of <i>"Unconditional Love," </i> and I stumbled on a surprising  revelation on romantic relationship hidden in a classic novel, <i>“Far from the madding crowd” written by Thomas Hardy</i> I learned that at several major world religions and many Indian yogis' teachings are founded on the premise that “Love is the answer.”
 
