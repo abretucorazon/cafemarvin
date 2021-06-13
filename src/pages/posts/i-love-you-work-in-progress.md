@@ -83,7 +83,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-bottom:0%;margin-top:7%"><b><i> To love well </i></b></p>
 
- <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life. I have started in my training during the pandemic lockdown. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn everyone into an expert on love, who will find the common puzzling questions of our time on love and relationship trivial common knowledge, for examples:
+ <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life. I have started in my training during the pandemic lockdown. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn everyone into an expert on love, for whom the common puzzling questions on love and relationship of our time, are trivial common knowledge. Some of these questions are:
 
 <i>Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?</i>
 
