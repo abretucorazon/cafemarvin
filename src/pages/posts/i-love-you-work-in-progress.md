@@ -93,9 +93,9 @@ Loving oneself unconditionally is a super power to transcend fear, guilt, shame,
 
 <p style="margin-bottom:0%;margin-top:7%"><b><i>My "Jedi" training </i></b></p>
 
-After all those great ideas, how about the work? Here is an example:
+After all those great ideas, how about the work? 
 
-As part of my self-love training, I have been practising this simple heart-warming routine several times a day, ... each time, ... I will pause, ... focus on my voice, ... and say out loud three times:
+Here is an example, as part of my self-love training, I have been practising this simple heart-warming routine several times a day: ... each time, ... I will pause, ... focus on my voice, ... and say out loud three times:
 
 <p style="text-align:center;">I love you! </p>
 
@@ -108,3 +108,15 @@ As part of my self-love training, I have been practising this simple heart-warmi
 .... Now, you try it!
 
 <br>
+
+Pss! Pss! Pss! ...
+
+Wanna hear a secret?... "I love therefore I am"
+
+<br>
+
+ Don't ever forget... "the absence of love is feeeeaaaarrr!!!"
+
+<br>
+
+I love you!
