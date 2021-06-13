@@ -77,13 +77,13 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <br>
 
-<p > I invite you to listen to Louise's heart-warming talk for more guidance:  </p>
+<p > I invite you save come back later to listen to Louise in this heart-warming talk for inspiration and guidance:  </p>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/MMTOZNL_Ybk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 <p style="margin-bottom:0%;margin-top:7%"><b><i> To love well </i></b></p>
 
- <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life, for that,  I have been in training  since my discovery of Louise’s teaching. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn every practitioner into an expert in love, and the many common puzzling questions of our time on love and relationship will become trivial common knowledge, for examples:
+ <p> I find the practice of loving oneself unconditionally to be an immensely valuable way of life. I have started in my training during the pandemic lockdown. Becoming expert at loving oneself has the potential to change the world. It is a path toward world peace. On a personal level, this skill and practice will turn everyone into an expert on love, who will find the common puzzling questions of our time on love and relationship trivial common knowledge, for examples:
 
 <i>Is this love?  Does he/she love me? Is he/she right for me?  Do I love her/him?  Am I in love?  Am I in a good relationship?  Am I in a co-dependent relationship? Do I stay or leave?</i>
 
