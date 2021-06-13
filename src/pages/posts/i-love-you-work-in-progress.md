@@ -111,18 +111,18 @@ Here is an example, as part of my self-love training, I have been practising thi
 
 <br>
 
-<p style="text-align:center;">THE END</p>
+<p style="text-align:center;margin-bottom:10%;">THE END</p>
 
 <br>
 
-Pss! Pss!... wanna hear a secret? ... "I love therefore I am"
+<p style="text-align:center;">Pss! Pss!... wanna hear a secret? ... "I love therefore I am" </p>
 
 <br>
 
- Don't ever forget, "the absence of love is feeeeaaaarrr...."
+ <p style="text-align:center;">Don't ever forget, "the absence of love is feeeeaaaarrr...." </p>
 
 <br>
 
-I love you.
+<p style="text-align:center;">I love you. </p>
 
 <br>
