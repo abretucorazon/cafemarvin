@@ -37,7 +37,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <p style="margin-bottom:0%;margin-top:7%"><b><i>Why love is the answer? </i></b></p>
 
-<p>Because "the absence of love is fear" </p>
+<p>Because <i>"the absence of love is fear" </i></p>
 
 <p style="margin-bottom:0%;margin-top:7%""><b><i>Your heart knows</i></b></p>
 
