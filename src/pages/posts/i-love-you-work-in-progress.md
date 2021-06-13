@@ -77,7 +77,7 @@ I will leave my thoughts on “Far from the madding crowd” for another article
 
 <br>
 
-<p > I invite you come back later to listen to Louise in this heart-warming talk for inspiration and guidance:  </p>
+<p > I invite you to come back later to listen to Louise in this heart-warming talk for inspiration and guidance:  </p>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/MMTOZNL_Ybk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
