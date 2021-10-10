@@ -1,5 +1,5 @@
 ---
-title: When love went away
+title: "Lesson learned #5: When love went away"
 date: 2021-10-10T03:09:20.981Z
 template: post
 ---
@@ -32,7 +32,7 @@ For many years Bill and Melinda Gates' marriage was my role model, their divorce
 * Mental illness
 * Irreconcilable differences
 
-my guess for Bill and Melinda’s legal ground for divorce is either "Irreconcilable Differences" or "Adultery" based on the limited public information available on the case, and the gossips circulating on social media.
+My guess for Bill and Melinda’s legal ground for divorce is either "Irreconcilable Differences" or "Adultery" based on the limited public information available on the case, and the gossips circulating on social media.
 
 “Irreconcilable differences” seems to be over-used as an escape hatch when none of the other legal grounds applies. And dissolving a marriage is often taken for granted as the default course of action when a couple is disenchanted with their relationship. It is almost impossible to be fully aware of all the implications of a divorce before going through the whole process, and in the years to follow. Like many forks on the road of life, we sometime think back on the path not taken and wonder what would have happened if we had taken it instead:
 
