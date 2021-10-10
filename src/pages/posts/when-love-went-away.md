@@ -80,6 +80,8 @@ Comparing Bill and Melinda with Bill and Hillary, both couples are highly accomp
 
 One other major difference between Melinda and Hillary is that Melinda never had the opportunity to take a shot at realizing her career aspirations while Hillary got to run for president twice. I imagine this would be a sufficiently strong motivation for Melinda to decide to dissolve her marriage.
 
+</br> 
+
 # “The courage to change”
 
 Hillary has proven that adultery is not by default, a cause to dismantle the life she had built with Bill. She was under tremendous social pressure to leave, and she had the courage to stay, and to rise up to tackle the new circumstances that had just presented themselves in her life.  Adultery has also become an archaic custom in this day and age when there are a large repertoire of relationship choices such as open marriage, LBGTQ, polyamory, etc. Adultery is considered to be a sin largely for the purpose of transferring wealth from one generation to the next, and to keep the wealth within the family bloodline. In present time, the question of a legitimate heir can be quickly answered with a DNA test, meanwhile, the value of transferring wealth within the family bloodline has lost its appeal when wealthy people like Bill Gates and Warren Buffett have pledged most of their wealth to charity instead of their children.
@@ -90,29 +92,29 @@ As mentioned above the rate of divorce of third marriages is in the 70%, for sec
 
 </br>
 
-DISCLAIMER:
+### DISCLAIMER:
 
 1. Marriage is an ever-evolving institution that changes at the same accelerating pace as society evolves.
 2. Marriage is a complex mixture of emotions, finance, moral values, traditions, religion, gender politics, civil laws, and more…. Most of these components are invisible until a divorce comes into the picture then issues from each of these areas all surface out of thin air.
 3. Bill and Hilary, Bill and Melinda are wealthy, successful, and famous couples who do not live their lives according to the same rules as the population at large. Most people including myself do not have intimate knowledge of the lives of people in high society. The observations in this article are based on the publicly available information.
 4. This article does not mean to pass judgements or to contribute to the gossips around sensational events of the day. The objective is to follow the advice of a wise man who, once said: “Only fools learn from their own mistakes.”
 
-RESOURCES:
+</br>
 
-1. The movie “Lalaland,” a romance between two young artists who are deeply in love, and are dedicated to their arts. They are, however, unable to build a life together.
+### RESOURCES:
 
-<https://bit.ly/3k7RyPL>
+\[1] The movie “Lalaland,” a romance between two young artists who are deeply in love, and are dedicated to their arts. They are, however, unable to build a life together.
 
-<iframe width="560" height="315" src="<https://www.youtube.com/embed/0pdqf4P9MB8>" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pdqf4P9MB8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-2. The movie “Passengers,” two strangers stranded by themselves on a spaceship on a journey to a distant galaxy that takes longer than a human lifetime. The couple succeeded in building a beautiful happy life together on this ship.
+</br> </br>
 
-<https://youtu.be/7BWWWQzTpNU>
+\[2] The movie “Passengers,” two strangers stranded by themselves on a spaceship on a journey to a distant galaxy that takes longer than a human lifetime. The couple succeeded in building a beautiful happy life together on this ship.
 
-<iframe width="560" height="315" src="<https://www.youtube.com/embed/7BWWWQzTpNU>" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7BWWWQzTpNU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-3. A song by Sia – “The courage to change” to inspire and motivate changes when facing life’s challenges
+</br> </br>
 
-<https://youtu.be/p5QfyF9pkHU>
+\[3] A song by Sia – “The courage to change” to inspire and motivate changes when facing life’s challenges
 
-<iframe width="560" height="315" src="<https://www.youtube.com/embed/p5QfyF9pkHU>" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/p5QfyF9pkHU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
