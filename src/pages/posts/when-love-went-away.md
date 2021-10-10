@@ -56,7 +56,7 @@ Furthermore, I would love to see the following two commitments be part of many n
 
 </br>
 
-# My new role model 
+# My new role model
 
 </br>
 
@@ -76,7 +76,7 @@ Hillary released her third memoir, "What Happened," in September of 2017, which 
 
 (Source: <https://www.insider.com/hillary-bill-clinton-relationship-timeline-2018-12#2003-hillary-publicly-acknowledged-the-monica-lewinsky-scandal-in-her-memoir-living-history-17> )
 
-Comparing Bill and Melinda with Bill and Hillary, both couples are highly accomplished, powerful, famous, and successful. The differences are in the fact that Bill & Hillary went through trials and tribulations in their careers: Bill Clinton's impeachment trial, and Hillary's 2008, 2016 presidential campaigns. These events put their relationship and their careers on trial. Meanwhile, Bill & Melinda have lived their life from a position of power and success virtually unchallenged, and uneventful. Ironically, it is hardship that makes love grow deeper, and relationships grow stronger–through trials and tribulations, a couple reveal to each other their true character,  the depth of their love for one another, the strength of their commitment, and their trust in each other grows tremendously as they cross over the troubled waters side-by-side, leaning on each other to pull through to safe-ground. As the old saying, "Love conquers all," Love leaves when there is nothing to conquer. (See my previous article: <http://www.146verdi.com/posts/a-new-marriage-proposal>)
+Comparing Bill and Melinda with Bill and Hillary, both couples are highly accomplished, powerful, famous, and successful. The differences are in the fact that Bill & Hillary went through trials and tribulations in their careers: Bill Clinton's impeachment trial, and Hillary's 2008, 2016 presidential campaigns. These events put their relationship and their careers on trial. Meanwhile, Bill & Melinda have lived their life from a position of power and success virtually unchallenged, and uneventful. Ironically, it is hardship that makes love grow deeper, and relationships grow stronger–through trials and tribulations, a couple reveal to each other their true character,  the depth of their love for one another, the strength of their commitment, and their trust in each other grows tremendously as they cross over the troubled waters side-by-side, leaning on each other to pull through to safe-ground. Like the old saying, "Love conquers all," Love leaves when there is nothing to conquer. (See my previous article: <http://www.146verdi.com/posts/a-new-marriage-proposal>)
 
 One other major difference between Melinda and Hillary is that Melinda never had the opportunity to take a shot at realizing her career aspirations while Hillary got to run for president twice. I imagine this would be a sufficiently strong motivation for Melinda to decide to dissolve her marriage.
 
