@@ -101,13 +101,13 @@ As mentioned above the rate of divorce of third marriages is in the 70%, for sec
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0pdqf4P9MB8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-</br> </br>
+</br> 
 
 \[2] The movie “Passengers,” two strangers stranded by themselves on a spaceship on a journey to a distant galaxy that takes longer than a human lifetime. The couple succeeded in building a beautiful happy life together on this ship.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/7BWWWQzTpNU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-</br> </br>
+</br> 
 
 \[3] A song by Sia – “The courage to change” to inspire and motivate changes when facing life’s challenges
 
