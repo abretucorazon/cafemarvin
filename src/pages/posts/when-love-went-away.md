@@ -66,7 +66,7 @@ Furthermore, I would love to see the following two commitments be part of many n
 
 This young couple are still together after 40+ years, through many up’s and down’s of their careers and personal lives. In case you don’t not know, this is Bill and Hilary Clinton, a US former president and a former US presidential candidate.
 
-While in office, Bill Clinton was involved in a sexual scandal with Monica Lewinsky. According to [insider.com](http://insider.com/):
+While in office, Bill Clinton was involved in a sexual scandal with Monica Lewinsky. According to insider.com:
 
 In Hilary’s 2003 memoir "Living History," she wrote, "I didn't know whether our marriage could — or should — survive such a stinging betrayal, but I knew I had to work through my feelings carefully, on my own timetable," calling the decision to stay with Clinton one of "the most difficult decisions I have made in my life."
 
