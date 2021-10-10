@@ -56,7 +56,9 @@ Furthermore, I would love to see the following two commitments be part of many n
 
 </br>
 
-# My new role model:
+# My new role model 
+
+</br>
 
 ![](https://berkeleyplaques.org/wp-content/uploads/2014/02/Clinton_02.jpg)
 
