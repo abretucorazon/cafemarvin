@@ -78,15 +78,19 @@ Hillary released her third memoir, "What Happened," in September of 2017, which 
 
 Comparing Bill and Melinda with Bill and Hillary, both couples are highly accomplished, powerful, famous, and successful. The differences are in the fact that Bill & Hillary went through trials and tribulations in their careers: Bill Clinton's impeachment trial, and Hillary's 2008, 2016 presidential campaigns. These events put their relationship and their careers on trial. Meanwhile, Bill & Melinda have lived their life from a position of power and success virtually unchallenged, and uneventful. Ironically, it is hardship that makes love grow deeper, and relationships grow stronger–through trials and tribulations, a couple reveal to each other their true character,  the depth of their love for one another, the strength of their commitment, and their trust in each other grows tremendously as they cross over the troubled waters side-by-side, leaning on each other to pull through to safe-ground. Like the old saying, "Love conquers all," Love leaves when there is nothing to conquer. (See my previous article: <http://www.146verdi.com/posts/a-new-marriage-proposal>)
 
-One other major difference between Melinda and Hillary is that Melinda never had the opportunity to take a shot at realizing her career aspirations while Hillary got to run for president twice. I imagine this would be a sufficiently strong motivation for Melinda to decide to dissolve her marriage.
+One other major difference between Melinda and Hillary is that Melinda never had the opportunity to take a shot at realizing her career aspirations while Hillary got to run for president twice. I imagine this would be a sufficiently strong motivation for Melinda to decide to dissolve her marriage. 
 
-# “The courage to change”
+</br>
+
+## The courage to change
 
 Hillary has proven that adultery is not by default, a cause to dismantle the life she had built with Bill. She was under tremendous social pressure to leave, and she had the courage to stay, and to rise up to tackle the new circumstances that had just presented themselves in her life.  Adultery has also become an archaic custom in this day and age when there are a large repertoire of relationship choices such as open marriage, LBGTQ, polyamory, etc. Adultery is considered to be a sin largely for the purpose of transferring wealth from one generation to the next, and to keep the wealth within the family bloodline. In present time, the question of a legitimate heir can be quickly answered with a DNA test, meanwhile, the value of transferring wealth within the family bloodline has lost its appeal when wealthy people like Bill Gates and Warren Buffett have pledged most of their wealth to charity instead of their children.
 
 As mentioned above the rate of divorce of third marriages is in the 70%, for second marriage is in the 60%, and 50% for first marriage. Marriage experts have suggested an explanation for this strange statics: most people unknowingly recreate the same drama in their subsequent marriages which lead to more dissatisfaction, and with prior experience, it is easier to leave the second and third time around.
 
-“The courage to change” is “the courage to stay.”
+The courage to change is “the courage to stay.”
+
+</br>
 
 ### DISCLAIMER:
 
@@ -95,20 +99,22 @@ As mentioned above the rate of divorce of third marriages is in the 70%, for sec
 3. Bill and Hilary, Bill and Melinda are wealthy, successful, and famous couples who do not live their lives according to the same rules as the population at large. Most people including myself do not have intimate knowledge of the lives of people in high society. The observations in this article are based on the publicly available information.
 4. This article does not mean to pass judgements or to contribute to the gossips around sensational events of the day. The objective is to follow the advice of a wise man who, once said: “Only fools learn from their own mistakes.”
 
+   </br>
+
 ### RESOURCES:
 
-\[1] The movie “Lalaland,” a romance between two young artists who are deeply in love, and are dedicated to their arts. They are, however, unable to build a life together.
+\[1] The movie “Lalaland” is the story of two young artists who were deeply in love, howerver, they were unable to build a life together.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/0pdqf4P9MB8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 </br> 
 
-\[2] The movie “Passengers,” two strangers stranded by themselves on a spaceship on a journey to a distant galaxy that takes longer than a human lifetime. The couple succeeded in building a beautiful happy life together on this ship.
+\[2] The movie “Passengers” is about two strangers who were accidentally stranded by themselves on a spaceship that is on its journey to a distant galaxy that takes longer than a human lifetime to  arrive. The couple succeeded in building a beautiful happy life together on this ship.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/7BWWWQzTpNU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 </br> 
 
-\[3] A song by Sia – “The courage to change” to inspire and motivate changes when facing life’s challenges
+\[3] A song by Sia: “The courage to change,” to inspire and motivate changes when facing with life’s challenges
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/p5QfyF9pkHU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
