@@ -52,7 +52,7 @@ Furthermore, I would love to see the following two commitments be part of many n
 1. we commit to never harbor resentments toward each another.
 2. we commit to argue, to agree, to disagree, to love and to honor our differences.
 
-… until \*Divorce\* do us part.
+… until \*divorce\* do us part.
 
 </br>
 
