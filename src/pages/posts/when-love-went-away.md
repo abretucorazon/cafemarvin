@@ -80,8 +80,6 @@ Comparing Bill and Melinda with Bill and Hillary, both couples are highly accomp
 
 One other major difference between Melinda and Hillary is that Melinda never had the opportunity to take a shot at realizing her career aspirations while Hillary got to run for president twice. I imagine this would be a sufficiently strong motivation for Melinda to decide to dissolve her marriage. 
 
-</br>
-
 ## The courage to change
 
 Hillary has proven that adultery is not by default, a cause to dismantle the life she had built with Bill. She was under tremendous social pressure to leave, and she had the courage to stay, and to rise up to tackle the new circumstances that had just presented themselves in her life.  Adultery has also become an archaic custom in this day and age when there are a large repertoire of relationship choices such as open marriage, LBGTQ, polyamory, etc. Adultery is considered to be a sin largely for the purpose of transferring wealth from one generation to the next, and to keep the wealth within the family bloodline. In present time, the question of a legitimate heir can be quickly answered with a DNA test, meanwhile, the value of transferring wealth within the family bloodline has lost its appeal when wealthy people like Bill Gates and Warren Buffett have pledged most of their wealth to charity instead of their children.
