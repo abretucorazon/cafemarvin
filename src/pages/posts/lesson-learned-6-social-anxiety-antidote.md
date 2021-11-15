@@ -20,29 +20,29 @@ Emotions are a language system our biology uses to communicate with our consciou
 
 How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Listen to your heart...." 
 
-“[Listen to your heart.](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson") It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist*
-
-“The Universe is not outside of you. Look inside yourself; [everything that you want, you already are.](https://healingbrave.com/collections/all/products/belonging-guided-meditation-for-peace "Belonging: A Guided Meditation for Peace and Harmony by Jennifer Williamson")” – Rumi
-
-“At the center of your being you have the answer; you know who you are and you know what you want.” – Lao Tzu
-
-“The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.” – Albert Einstein
-
-“There is a voice that doesn’t use word. Listen.” – Rumi
+> "[](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson")Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist*
+>
+> “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi
+>
+> “At the center of your being you have the answer; you know who you are and you know what you want.” – Lao Tzu
+>
+> “The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.” – Albert Einstein
+>
+> “There is a voice that doesn’t use word. Listen.” – Rumi
 
 You try to listen to your heart. It speaks of fears, sadness and despair. It says it has not been filled with love for many many years. It is sad because your mind is restless and confused because it has been mis-guided by the outside world. It is afraid to see your life slipping away from your true nature each day, meanwhile your physical, emotional, and mental  healths are in decline.  It has stopped hoping for happier days. Taken by the sadness in your heart, you want to do make things better, to change, yet, you have no idea how to go about it. Then you remember your heart said it yearns to be filled with love. 
 
 Love yourself unconditionally to chase away the fears, sadness, despair from your heart, and restore its youthfulness to the way it was in your childhood, then keep listening. Your heart will reveal who you are, what makes you happy, what is your purpose, and what is your superpower. How to love yourself unconditionally? My late spiritual teacher, Louise Hay, has worked out a simple process:
 
-* Stop criticizing, judging, or blaming yourself
-* Take care of your health: nutrition, sleep, exercise, supportive relationships 
-* Accept yourself as you are, with all your qualities and flaws
-* Be kind and cherish yourself
-* Be patient with yourself
-* Forgive yourself for all the mistakes you made
-* Stop scaring yourself with worries about the future
-* Find support from your close relationships when you need help
-* Practice meditation to connect with your true self
+1. Stop criticizing, judging, or blaming yourself
+2. Take care of your health: nutrition, sleep, exercise, supportive relationships 
+3. Accept yourself as you are, with all your qualities and flaws
+4. Be kind and cherish yourself
+5. Be patient with yourself
+6. Forgive yourself for all the mistakes you made
+7. Stop scaring yourself with worries about the future
+8. Find support from your close relationships when you need help
+9. Practice meditation to connect with your true self
 
 <br/>(Louise Hay talked about this process here: <https://youtu.be/MMTOZNL_Ybk> )
 
