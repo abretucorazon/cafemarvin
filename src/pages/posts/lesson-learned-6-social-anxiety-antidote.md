@@ -46,7 +46,9 @@ Love yourself unconditionally to chase away the fears, sadness, despair from you
 
 <br/>(Louise Hay talked about this process here: <https://youtu.be/MMTOZNL_Ybk> )
 
-<br/>
+<br/><br/>
+
+
 
 In summary, 
 
@@ -58,7 +60,11 @@ In summary, 
 >
 > Live your life according to your DNA
 
-<br/>
+
+
+<br/><br/>
+
+
 
 **Bonus**: This video offers more useful tips about love 
 
