@@ -40,7 +40,7 @@ How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Lis
 >
 > <br/>
 
-You try to listen to your heart. It speaks of fears, sadness and despair. It says it has not been filled with love for many many years. It is sad because your mind is restless and confused because it has been mis-guided by the outside world. It is afraid to see your life slipping away from your true nature each day, meanwhile your physical, emotional, and mental  healths are in decline.  It has stopped hoping for happier days. Taken by the sadness in your heart, you want to do make things better, to change, yet, you have no idea how to go about it. Then you remember your heart said it yearns to be filled with love. 
+You try to listen to your heart. It speaks of fears, sadness and despair. It says it has not been filled with love for many many years. It is sad because your mind is restless and confused after years of being mis-guided. It is afraid to see your life slipping away from your true nature, meanwhile your physical, emotional, and mental  healths are in decline.  It has stopped hoping for happier days. Taken by the sadness in your heart, you want to make things better, to change, ... yet, you have not a clue how to go about it. Then you remember your heart said it yearns to be filled with love. 
 
 Love yourself unconditionally to chase away the fears, sadness, despair from your heart, and restore its youthfulness to the way it was in your childhood, then keep listening. Your heart will reveal who you are, what makes you happy, what is your purpose, and what is your superpower. How to love yourself unconditionally? My late spiritual teacher, Louise Hay, has worked out a simple process:
 
