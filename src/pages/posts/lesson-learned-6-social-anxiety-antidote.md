@@ -56,8 +56,6 @@ In summary, 
 >
 > Listen to your heart,
 >
-> Know thyself,
->
 > Live according to your DNA
 
 
