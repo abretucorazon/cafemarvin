@@ -24,7 +24,7 @@ How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Lis
 >
 > <br/>
 >
-> “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi
+> “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi
 >
 > <br/>
 >
