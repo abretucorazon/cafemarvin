@@ -52,13 +52,13 @@ Love yourself unconditionally to chase away the fears, sadness, despair from you
 
 In summary, 
 
-> Love yourself unconditionally,
+> Love yourself,
 >
 > Listen to your heart,
 >
 > Know thyself,
 >
-> Live your life according to your DNA
+> Live according to your DNA
 
 
 
