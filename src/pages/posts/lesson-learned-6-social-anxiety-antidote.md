@@ -54,7 +54,7 @@ Love yourself unconditionally to chase away the fears, sadness, despair from you
 8. Find support from your close relationships when you need help
 9. Practice meditation to connect with your true self
 
-<br/>(Louise Hay talked about this process in this video: <https://youtu.be/MMTOZNL_Ybk> )
+(Louise Hay talked about this process in this video: <https://youtu.be/MMTOZNL_Ybk> )
 
 <br/>
 
