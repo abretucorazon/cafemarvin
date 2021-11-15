@@ -20,7 +20,7 @@ Emotions are a language system our biology uses to communicate with our consciou
 
 How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Listen to your heart...." 
 
-> "[](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson")Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist*
+> “[](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson")Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist*
 >
 >
 >
