@@ -22,13 +22,23 @@ How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Lis
 
 > "[](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson")Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist*
 >
+>
+>
 > “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi
+>
+>
 >
 > “At the center of your being you have the answer; you know who you are and you know what you want.” – Lao Tzu
 >
+>
+>
 > “The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.” – Albert Einstein
 >
+>
+>
 > “There is a voice that doesn’t use word. Listen.” – Rumi
+>
+>
 
 You try to listen to your heart. It speaks of fears, sadness and despair. It says it has not been filled with love for many many years. It is sad because your mind is restless and confused because it has been mis-guided by the outside world. It is afraid to see your life slipping away from your true nature each day, meanwhile your physical, emotional, and mental  healths are in decline.  It has stopped hoping for happier days. Taken by the sadness in your heart, you want to do make things better, to change, yet, you have no idea how to go about it. Then you remember your heart said it yearns to be filled with love. 
 
