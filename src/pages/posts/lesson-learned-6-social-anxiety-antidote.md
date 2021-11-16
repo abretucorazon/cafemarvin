@@ -50,13 +50,13 @@ Love yourself unconditionally to chase away the fears, sadness, despair from you
 
 In summary, 
 
-> You are a fish,
+> You are a fish.
 >
-> Love yourself,
+> Love yourself.
 >
-> Listen to your heart,
+> Listen to your heart.
 >
-> Live according to your DNA
+> Live according to your DNA.
 
 <br/><br/>
 
