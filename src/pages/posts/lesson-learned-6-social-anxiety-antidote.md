@@ -30,9 +30,17 @@ How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Lis
 >
 > “At the center of your being you have the answer; you know who you are and you know what you want.” – Lao Tzu
 >
+> <br/>
+>
 > “The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.” – Albert Einstein
 >
+> <br/>
+>
 > “There is a voice that doesn’t use word. Listen.” – Rumi
+>
+> <br/>
+>
+>
 
 You try to listen to your heart. It speaks of fears, sadness and despair. It says it has not been filled with love for many many years. It is sad because your mind is restless and confused after years of being mis-guided. It is afraid to see your life slipping away from your true nature, meanwhile your physical, emotional, and mental  healths are in decline.  It has stopped hoping for happier days. Taken by the sadness in your heart, you want to make things better, to change, ... yet, you have not a clue how to go about it. Then you remember your heart said it yearns to be filled with love. 
 
