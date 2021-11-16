@@ -22,7 +22,11 @@ How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Lis
 
 > “[](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson")Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist* 
 >
-> “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi
+> <br/>
+>
+> “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi 
+>
+> <br/>
 >
 > “At the center of your being you have the answer; you know who you are and you know what you want.” – Lao Tzu
 >
