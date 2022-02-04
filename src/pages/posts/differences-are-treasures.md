@@ -78,8 +78,7 @@ Imagine a river flowing between two river banks, and a bridge across the river, 
 
 As a couple, we tend to focus our attention on our partner and overlook the relationship we have with them. If we go back to the beginning and retell our story, we would discover that we have had several different relationships with the same partner. For example, two strangers become acquaintances, then casual dates, friends with benefits, lovers, boyfriend-girlfriend, fiancés, spouses, business partners, parents, .... In each relationship, we play a different role and relate to our partner in a specific fashion according to that role. This is a realization that a couple actually has multiple diverse relationships that come and go as  the partners grow and change. And best of all, as a couple, we can freely create a new relationship to replace one that no longer serve us--people naturally change over time and we don't often think that our relationship need to be upgraded to support a new stage in our evolution.
 
-When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. 
-As a general rule in human nature: 
+When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. As a general rule in human nature: 
 
 >> *"The absence of love is fear"*
 
