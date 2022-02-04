@@ -1,5 +1,5 @@
 ---
-title: Differences are treasures
+title: "Lesson learned #7: Differences are treasures"
 date: 2022-02-04T20:28:51.150Z
 template: post
 ---
@@ -78,7 +78,17 @@ Imagine a river flowing between two river banks, and a bridge across the river, 
 
 As a couple, we tend to focus our attention on our partner and overlook the relationship we have with them. If we go back to the beginning and retell our story, we would discover that we have had several different relationships with the same partner. For example, two strangers become acquaintances, then casual dates, friends with benefits, lovers, boyfriend-girlfriend, fiancés, spouses, business partners, parents, .... In each relationship, we play a different role and relate to our partner in a specific fashion according to that role. This is a realization that a couple actually has multiple diverse relationships that come and go as  the partners grow and change. And best of all, as a couple, we can freely create a new relationship to replace one that no longer serve us--people naturally change over time and we don't often think that our relationship need to be upgraded to support a new stage in our evolution.
 
-When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. By nature, "The absence of love is fear." The fears that take hold of their heart cause both partners to feel pain, and to hurt one another as a relief for their suffering. One or both partners tend to assume a victim role and judge their partner as the villain responsible for their pain. There is generally no villain or victim in a relationship, it is the relationship itself that is in need of transformation to meet the needs of the couple, not the opposite where the couple have to force themselves to fit into the old relationship that has run through its course.
+When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. 
+As a general rule in human nature: 
+>
+>> *"The absence of love is fear"*
+
+The fears that take hold of their heart cause both partners to feel pain, and to hurt one another as a relief for their suffering. One or both partners tend to assume a victim role and judge their partner as the villain responsible for their pain. 
+>
+>>*There is generally no villain or victim in a relationship.* 
+
+
+It is the relationship itself that is in need of transformation to meet the needs of the couple, not the opposite where the couple have to force themselves to fit into the old relationship that has run through its course.
 
 <br>
 
@@ -90,8 +100,8 @@ A new way to relate, a new dance with one another gives birth to a new relations
 * You will find detailed information and resources on Sue's website (<https://drsuejohnson.com>)
 * In this interview, Sue Johnson shared insights into her process
 <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/9qFK8Mi9W_g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<br><br>
+<br><br><br>
 
-> "Keep breaking your heart until it opens"
+>> "Keep breaking your heart until it opens"
 >
-> *\- Rumi*
+>>>>>> *\- Rumi*
