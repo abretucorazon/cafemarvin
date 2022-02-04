@@ -80,11 +80,11 @@ As a couple, we tend to focus our attention on our partner and overlook the rela
 
 When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. As a general rule in human nature: 
 
->> *"The absence of love is fear"*
+> *"The absence of love is fear"*
 
 The fears that take hold of their heart cause both partners to feel pain, and to hurt one another as a relief for their suffering. One or both partners tend to assume a victim role and judge their partner as the villain responsible for their pain. 
 
->>*There is generally no villain or victim in a relationship.* 
+>*There is generally no villain or victim in a relationship.* 
 
 
 It is the relationship itself that is in need of transformation to meet the needs of the couple, not the opposite where the couple have to force themselves to fit into the old relationship that has run through its course.
