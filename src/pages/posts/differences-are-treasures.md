@@ -80,11 +80,11 @@ As a couple, we tend to focus our attention on our partner and overlook the rela
 
 When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. 
 As a general rule in human nature: 
->
+
 >> *"The absence of love is fear"*
 
 The fears that take hold of their heart cause both partners to feel pain, and to hurt one another as a relief for their suffering. One or both partners tend to assume a victim role and judge their partner as the villain responsible for their pain. 
->
+
 >>*There is generally no villain or victim in a relationship.* 
 
 
@@ -98,10 +98,10 @@ A new way to relate, a new dance with one another gives birth to a new relations
 
 * An audiobook version of "Hold me tight"  (<https://youtu.be/76xFs73r_Tc>)
 * You will find detailed information and resources on Sue's website (<https://drsuejohnson.com>)
-* In this interview, Sue Johnson shared insights into her process
+* In this interview, Sue shared great insights into her process
 <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/9qFK8Mi9W_g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 <br><br><br>
 
->> "Keep breaking your heart until it opens"
+> "Keep breaking your heart until it opens"
 >
->>>>>> *\- Rumi*
+>*\- Rumi -*
