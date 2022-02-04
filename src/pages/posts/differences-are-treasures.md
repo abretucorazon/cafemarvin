@@ -46,7 +46,7 @@ It seems complementary personalities and skillset are more aligned with compatib
 * The ability to learn and to teach one another would help couples to change and grow together with time.
 * A sign of compatibility: when partners complement each other's weakness, and support each other's strength
 * Another sign of compatibility: when similarity increases over time, and incompatibility if similarity decreases. In the early days when the couple just meets, they probably have 20% similarity and 80% difference. On their journey building a life together, the couple would arrive at 80% similarity, 20% difference. 
-* Compatibility is not black and white but a spectrum of shades of grey. Compatibility will increase with the learning to know our partner better, and the learning of better skills in the art of loving, then applying these knowledge and skills to the  relationship. I wrote down some ideas on learning to love well in a previous article, "To love well" ( <https://146verdi.com/posts/lesson-1-narcissus/> .)
+* Compatibility is not black and white but a spectrum of shades of grey. Compatibility will increase with the learning to know our partner better, and the learning of better skills in the art of loving, then applying these knowledge and skills to the  relationship. I wrote down some ideas on loving well in a previous article, "To love well" ( <https://146verdi.com/posts/lesson-1-narcissus/> .)
 * Personality tests are useful tools to learn more about oneself, and about the people we love in their particularities. A better knowledge of ourself and of our partner would contribute handsomely to the quality of the interactions we have with one another, which, in turn, would enhance the compatibility in a couple.
 
 <br>
@@ -80,11 +80,11 @@ As a couple, we tend to focus our attention on our partner and overlook the rela
 
 When a relationship no longer meets the needs of the couple, both partners feel unloved and disconnected from each other. As a general rule in human nature: 
 
->*"The absence of love is fear."* 
+> *"The absence of love is fear."* 
 
 The fears that take hold of their heart cause both partners to feel pain, and to hurt one another as a relief for their suffering. One or both partners tend to assume a victim role, and judges their partner as the villain responsible for their pain. 
 
->*There is generally no villain or victim in a relationship.* 
+> *There is generally no villain or victim in a relationship.* 
 
 It is the relationship itself that is in need of transformation to meet the needs of the couple, not the opposite where the couple have to force themselves to fit into the old relationship that has run through its course.
 
@@ -97,8 +97,6 @@ A new way to relate, a new dance with one another gives birth to a new relations
 * An audiobook version of "Hold me tight"  (<https://youtu.be/76xFs73r_Tc>)
 * You will find detailed information and resources on Sue's website (<https://drsuejohnson.com>)
 * In this interview, Sue shared great insights into her process
-<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/9qFK8Mi9W_g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
-<br><br><br>
 
 > "Keep breaking your heart until it opens"
 >
