@@ -60,7 +60,7 @@ You would have a lot of fun with your partner trying out these popular personali
 
 and see if you would learn something new about yourself and your partner.  
 
-As a real world example: the celebrity hedge fund manager Ray Dalio has credited a suite of personality tests to be the corner stone of his management philosophy and to his financial success. He relied on these tests for recruiting, organizing teams, and matching people with work projects. Now in his retirement, he is working on improving these tests, and showing other organizations how to implement them. (<https://qz.com/work/2000975/ray-dalio-says-his-new-personality-test-is-better-than-interviews/> )
+As a real world example: the celebrity hedge fund manager Ray Dalio has credited a suite of personality tests to be the corner stone of his management philosophy and  financial success. He relied on these tests for recruiting, organizing teams, and matching people with work projects. Now in his retirement, he is working on improving these tests, and showing other organizations how to implement them. (<https://qz.com/work/2000975/ray-dalio-says-his-new-personality-test-is-better-than-interviews/> )
 
 A Word of Caution: personality tests do have limitations as they are accurate to some degrees, and while not full proof, they are still useful tools. When a couple would sit down to review their test results together, that would bring out far better accuracy. 
 
