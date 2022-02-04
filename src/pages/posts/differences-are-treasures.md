@@ -45,7 +45,7 @@ It seems complementary personalities and skillset are more aligned with compatib
 
 * The ability to learn and to teach one another would help couples to change and grow together with time.
 * A sign of compatibility: when partners complement each other's weakness, and support each other's strength
-* Another sign of compatibility: when similarity increases over time, and incompatibility if similarity decreases. In the early days when the couple just meets, they probably have 20% similarity and 80% difference. On their journey building a life together, the couple would arrive at 80% similarity, 20% difference. 
+* Another sign of compatibility: when similarity increases with time, and incompatibility if similarity decreases. In the early days when the couple just meets, they probably have 20% similarity and 80% difference. On their journey building a life together, the couple would probably arrive at 80% similarity, 20% difference. 
 * Compatibility is not black and white but a spectrum of shades of grey. Compatibility will increase with the learning to know our partner better, and the learning of better skills in the art of loving, then applying these knowledge and skills to the  relationship. I wrote down some ideas on loving well in a previous article, "To love well" ( <https://146verdi.com/posts/lesson-1-narcissus/> .)
 * Personality tests are useful tools to learn more about oneself, and about the people we love in their particularities. A better knowledge of ourself and of our partner would contribute handsomely to the quality of the interactions we have with one another, which, in turn, would enhance the compatibility in a couple.
 
@@ -62,7 +62,7 @@ and see if you would learn something new about yourself and your partner.  
 
 As a real world example: the celebrity hedge fund manager Ray Dalio has credited a suite of personality tests to be the corner stone of his management philosophy and  financial success. He relied on these tests for recruiting, organizing teams, and matching people with work projects. Now in his retirement, he is working on improving these tests, and showing other organizations how to implement them. (<https://qz.com/work/2000975/ray-dalio-says-his-new-personality-test-is-better-than-interviews/> )
 
-A Word of Caution: personality tests do have limitations as they are accurate to some degrees, and while not full proof, they are still useful tools. When a couple would sit down to review their test results together, that would bring out far better accuracy. 
+A Word of Caution: personality tests do have limitations as they are accurate to some degrees, and while not full proof, they are still useful tools. When a couple would sit down to review their test results together, it  would bring out far better accuracy. 
 
 <br>
 
