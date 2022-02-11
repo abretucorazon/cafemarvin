@@ -16,15 +16,15 @@ Somewhere in 18th century Europe. A WOMAN is in difficult labor. An elderly MIDW
 
 <p style="margin-left:45%; margin-right:20%;">WOMAN </p>
 
-<p style="margin-left:40%; margin-right:20%;"> (pushes)</p>
+<p style="margin-left:40%; margin-right:20%;"> (pushes)
 
-<p style="margin-left:30%; margin-right:20%;">Ah!…Ah! 
+<p style="margin-left:30%; margin-right:20%;">Ah!…Ah! </p>
 
 <p style="margin-left:45%; margin-right:20%;">MIDWIFE </p>
 
 <p style="margin-left:40%; margin-right:20%;">(to the young maid)</p>
 
-<p style="margin-left:30%; margin-right:20%;">Fetch more hot water.
+<p style="margin-left:30%; margin-right:20%;">Fetch more hot water.</p>
 
 The maid hurries out of the bedroom.
 
