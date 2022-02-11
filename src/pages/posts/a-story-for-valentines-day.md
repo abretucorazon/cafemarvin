@@ -14,17 +14,13 @@ Somewhere in 18th century Europe. A WOMAN is in difficult labor. An elderly MIDW
 
 <p style="margin-left:30%; margin-right:20%;">Push! </p>
 
-<p style="margin-left:45%; margin-right:20%;">WOMAN </p>
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">WOMAN<br>(pushes)</p>
 
-<p style="margin-left:40%; margin-right:20%;"> (pushes)
+<p style="margin-left:30%; margin-right:20%;">Ah!…Ah! 
 
-<p style="margin-left:30%; margin-right:20%;">Ah!…Ah! </p>
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">MIDWIFE <br>(to the young maid)</p>
 
-<p style="margin-left:45%; margin-right:20%;">MIDWIFE </p>
-
-<p style="margin-left:40%; margin-right:20%;">(to the young maid)</p>
-
-<p style="margin-left:30%; margin-right:20%;">Fetch more hot water.</p>
+<p style="margin-left:30%; margin-right:20%;">Fetch more hot water.
 
 The maid hurries out of the bedroom.
 
@@ -32,9 +28,7 @@ INT. HALLWAY – NIGHT
 
 The HUSBAND is shifting nervously in his chair outside of the door. He jumps up and looks inquiringly at the maid. The maid shakes her head then hurries toward the kitchen. 
 
-<p style="margin-left:45%; margin-right:20%;">WOMAN (O.S.)</p>
-
-<p style="margin-left:40%; margin-right:20%;">(groans)</p>
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">WOMAN (O.S.)<br>(groans)</p>
 
 <p style="margin-left:30%; margin-right:20%;">Ah!…Ah!</p>
 
@@ -128,21 +122,15 @@ Mendel and Lord Byron are having a lively conversation. The piano music stops. M
 
 <p style="margin-left:30%; margin-right:20%;">Your medicine! Father.
 
-<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
-
-<p style="margin-left:40%; margin-right:20%;">(lovingly)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">LORD BYRON <br>(lovingly)</p>
 
 <p style="margin-left:30%; margin-right:20%;">Ah, thank you my dear. Master Mendel, this is my daughter Maria.
 
-<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
-
-<p style="margin-left:40%; margin-right:20%;">(rises and bows)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">MENDEL<br>(rises and bows)</p>
 
 <p style="margin-left:30%; margin-right:20%;">I am delighted to make your acquaintance, miss Byron.
 
-<p style="margin-left:45%; margin-right:20%;">MARIA</p>
-
-<p style="margin-left:40%; margin-right:20%;">(with self-control)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">MARIA<br>(with self-control)</p>
 
 <p style="margin-left:30%; margin-right:20%;">I…am also pleased to meet you, master Mendel.
 
@@ -150,9 +138,7 @@ Mendel and Lord Byron are having a lively conversation. The piano music stops. M
 
 <p style="margin-left:30%; margin-right:20%;">Miss Byron, you are an accomplished pianist.
 
-<p style="margin-left:45%; margin-right:20%;">MARIA</p>
-
-<p style="margin-left:40%; margin-right:20%;">(with pride)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">MARIA<br>(with pride)</p>
 
 <p style="margin-left:30%; margin-right:20%;">Oh, you are too kind, master Mendel.
 
@@ -196,9 +182,7 @@ Mendel and Lord Byron are having a lively conversation. The piano music stops. M
 
 <p style="margin-left:30%; margin-right:20%;">I do feel compassion for master Mendel. He must have suffered greatly in his life. 
 
-<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
-
-<p style="margin-left:40%; margin-right:20%;">(thoughtful)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">LORD BYRON<br>(thoughtful)</p>
 
 <p style="margin-left:30%; margin-right:20%;">Master Mendel’s appearance is an unfortunate quality for such an accomplished man.
 
@@ -210,9 +194,7 @@ EXT. IN A PARK – DAY (SUNNY MORNING)
 
 Maria is walking in the park, she notices Mendel sitting on a bench up ahead. She comes up to him. Mendel stands up to make a courteous bow.
 
-<p style="margin-left:45%; margin-right:20%;">MARIA</p>
-
-<p style="margin-left:40%; margin-right:20%;">(smiling)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">MARIA<br>(smiling)</p>
 
 <p style="margin-left:30%; margin-right:20%;">Good morning master Mendel. 
 
@@ -254,9 +236,7 @@ Marian and Mendel are having a lively and pleasant conversation. 
 
 <p style="margin-left:30%; margin-right:20%;">Please, do tell me how did Heaven decide on your marriage?
 
-<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
-
-<p style="margin-left:40%; margin-right:20%;">(looking straight into her eyes) 
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">MENDEL<br>(looking straight into her eyes) </p>
 
 <p style="margin-left:30%; margin-right:20%;">When I was about to be born…
 
@@ -338,17 +318,13 @@ Everyone is watching Mendel and Maria sitting at the piano from the mirror. Two 
 
 Lightning and the clouds above their head lights up with warm colors. A chorus of sacred music comes down from above. Everyone stops and looks up above their head, captivated by the music. 
 
-<p style="margin-left:45%; margin-right:20%;">POWERFUL VOICE(O.S.)</p>
-
-<p style="margin-left:40%; margin-right:20%;">(lightning flashes)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">POWERFUL VOICE(O.S.)<br>(lightning flashes)</p>
 
 <p style="margin-left:30%; margin-right:20%;">WELL DONE! </p>
 
 The music fades out. 
 
-<p style="margin-left:45%; margin-right:20%;">THE OLD SAINT </p>
-
-<p style="margin-left:40%; margin-right:20%;">(claps his hands a few times)
+<p style="text-indent:10%; margin-left:40%;margin-right:20%;">THE OLD SAINT <br>(claps his hands a few times)</p>
 
  <p style="margin-left:30%; margin-right:20%;">It is time for the next soul to be born.
 
