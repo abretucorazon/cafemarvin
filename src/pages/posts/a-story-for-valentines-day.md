@@ -4,8 +4,6 @@ subtitle: Based on a story from “Chicken soup for the Soul”
 date: 2022-02-11T17:41:10.707Z
 template: post
 ---
-
-
 FADE IN:
 
 INT. BEDROOM – NIGHT
@@ -24,7 +22,7 @@ Somewhere in 18th century Europe. A WOMAN is in difficult labor. An elderly MIDW
 
 <center>MIDWIFE </center>
 
-(to the young maid)
+<p style="margin-left:40%; margin-right:20%;">(to the young maid)</p>
 
 <p style="margin-left:20%; margin-right:20%;">Fetch more hot water.
 
@@ -36,9 +34,9 @@ The HUSBAND is shifting nervously in his chair outside of the door. He jumps up 
 
 <center>WOMAN (O.S.)</center>
 
-(groans)
+<p style="margin-left:40%; margin-right:20%;">(groans)</p>
 
-Ah!…Ah!
+<p style="margin-left:20%; margin-right:20%;">Ah!…Ah!</p>
 
 The maid comes back with a bucket of hot water.
 
@@ -66,8 +64,6 @@ INT. GLOVES SHOP - DAY
 
 He browses while keeping an eye on the girl through the store window. 
 
-
-
 Maria takes leave of her acquaintance, and turns around the corner of the street. Mendel leaves the store to keep up with her. 
 
 EXT. PARK - DAY
@@ -91,8 +87,6 @@ EXT. A HOUSE FURTHER DOWN, ON THE OPPOSITE SIDE OF THE STREET - DAY 
 Mendel listens attentively to the piano music.
 
 EXT. DOORSTEPS OF SAME HOUSE – DAY (A LATER DAY)
-
-
 
 Mendel, dressed up in another fashionable suit. He is listening to the piano music coming out of Maria’s window. 
 
@@ -173,8 +167,6 @@ Mendel and Lord Byron are having a lively conversation. The piano music stops. M
 <center>LORD BYRON</center>
 
 <p style="margin-left:20%; margin-right:20%;">Master Mendel is among the most successful businessmen in the country.
-
-
 
 <center>MENDEL</center>
 
@@ -292,8 +284,6 @@ The mirror shows a young couple on their wedding day. 
 
 The mirror shows the wife in labor, and the husband sitting restlessly in a hallway. 
 
-
-
 <center>OLD SAINT (V.O.)</center>
 
 <p style="margin-left:20%; margin-right:20%;">You will grow into a handsome and wealthy gentleman. You will be adored by the ladies.
@@ -309,8 +299,6 @@ The mirror shows Mendel walking down the aisle on his wedding day with his short
 Mendel slowly wakes up from his sleepiness. A beautiful angel comes over to lead him away. She looks very much like Maria. He resists, not wanting to leave. He tries to speak but no sound comes out of his mouth. He points a finger at his future bride in the mirror and looks intensely at the old Saint. Mendel shakes his head, tears roll down his cheeks. The old Saint is surprised. 
 
 Mendel turns to point at the beautiful angel standing next to him, then moves his finger to point at his future bride in the mirror, and looks inquiringly at the old Saint who pauses to consider then searches through his large volumes. He looks up at Mendel and shakes his head. The beautiful angel again leads him away. Mendel stares intensely at the mirror as he steps away. 
-
-
 
 Abruptly, Mendel grabs the angel’s hand and pulls her back in front of the mirror. He points at his future bride then points at his back and gestures to indicate him shorter. 
 
