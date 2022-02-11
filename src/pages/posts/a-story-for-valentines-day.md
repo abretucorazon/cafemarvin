@@ -10,21 +10,21 @@ INT. BEDROOM – NIGHT
 
 Somewhere in 18th century Europe. A WOMAN is in difficult labor. An elderly MIDWIFE assists the labor with the help of a young MAID. 
 
-<center>MIDWIFE </center>
+<p style="margin-left:45%; margin-right:20%;">MIDWIFE </p>
 
-<p style="margin-left:20%; margin-right:20%;">Push! </p>
+<p style="margin-left:30%; margin-right:20%;">Push! </p>
 
-<center>WOMAN </center>
+<p style="margin-left:45%; margin-right:20%;">WOMAN </p>
 
 <p style="margin-left:40%; margin-right:20%;"> (pushes)</p>
 
-<p style="margin-left:20%; margin-right:20%;">Ah!…Ah! 
+<p style="margin-left:30%; margin-right:20%;">Ah!…Ah! 
 
-<center>MIDWIFE </center>
+<p style="margin-left:45%; margin-right:20%;">MIDWIFE </p>
 
 <p style="margin-left:40%; margin-right:20%;">(to the young maid)</p>
 
-<p style="margin-left:20%; margin-right:20%;">Fetch more hot water.
+<p style="margin-left:30%; margin-right:20%;">Fetch more hot water.
 
 The maid hurries out of the bedroom.
 
@@ -32,11 +32,11 @@ INT. HALLWAY – NIGHT
 
 The HUSBAND is shifting nervously in his chair outside of the door. He jumps up and looks inquiringly at the maid. The maid shakes her head then hurries toward the kitchen. 
 
-<center>WOMAN (O.S.)</center>
+<p style="margin-left:45%; margin-right:20%;">WOMAN (O.S.)</p>
 
 <p style="margin-left:40%; margin-right:20%;">(groans)</p>
 
-<p style="margin-left:20%; margin-right:20%;">Ah!…Ah!</p>
+<p style="margin-left:30%; margin-right:20%;">Ah!…Ah!</p>
 
 The maid comes back with a bucket of hot water.
 
@@ -98,21 +98,21 @@ INT.  STUDY ROOM - DAY 
 
 MARIA's father was reviewing his business books at his desk. Piano playing can be heard from upstairs. A servant comes in
 
-<center>SERVANT</center>
+<p style="margin-left:45%; margin-right:20%;">SERVANT</p>
 
-<p style="margin-left:20%; margin-right:20%;">Master Mendel is here sir.
+<p style="margin-left:30%; margin-right:20%;">Master Mendel is here sir.
 
-<center>LORD BYRON </center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON </p>
 
-<p style="margin-left:20%; margin-right:20%;">Show him in, Thomas.
+<p style="margin-left:30%; margin-right:20%;">Show him in, Thomas.
 
-<center>MENDEL </center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL </p>
 
-<p style="margin-left:20%; margin-right:20%;">Good morning, how do you do Lord Byron?
+<p style="margin-left:30%; margin-right:20%;">Good morning, how do you do Lord Byron?
 
-<center>LORD BYRON </center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON </p>
 
-<p style="margin-left:20%; margin-right:20%;">Good morning Master Mendel. Very well thank you. I have reviewed the details of the transaction, please go over them yourself.
+<p style="margin-left:30%; margin-right:20%;">Good morning Master Mendel. Very well thank you. I have reviewed the details of the transaction, please go over them yourself.
 
 Mendel sits down to review the documents with Lord Byron. 
 
@@ -124,83 +124,83 @@ INT.  STUDY ROOM - DAY 
 
 Mendel and Lord Byron are having a lively conversation. The piano music stops. Maria comes in with her father’s medicine. 
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Your medicine! Father.
+<p style="margin-left:30%; margin-right:20%;">Your medicine! Father.
 
-<center>LORD BYRON</center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
 
-(lovingly)
+<p style="margin-left:40%; margin-right:20%;">(lovingly)
 
-<p style="margin-left:20%; margin-right:20%;">Ah, thank you my dear. Master Mendel, this is my daughter Maria.
+<p style="margin-left:30%; margin-right:20%;">Ah, thank you my dear. Master Mendel, this is my daughter Maria.
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-(rises and bows)
+<p style="margin-left:40%; margin-right:20%;">(rises and bows)
 
-<p style="margin-left:20%; margin-right:20%;">I am delighted to make your acquaintance, miss Byron.
+<p style="margin-left:30%; margin-right:20%;">I am delighted to make your acquaintance, miss Byron.
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-(with self-control)
+<p style="margin-left:40%; margin-right:20%;">(with self-control)
 
-<p style="margin-left:20%; margin-right:20%;">I…am also pleased to meet you, master Mendel.
+<p style="margin-left:30%; margin-right:20%;">I…am also pleased to meet you, master Mendel.
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-<p style="margin-left:20%; margin-right:20%;">Miss Byron, you are an accomplished pianist.
+<p style="margin-left:30%; margin-right:20%;">Miss Byron, you are an accomplished pianist.
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-(with pride)
+<p style="margin-left:40%; margin-right:20%;">(with pride)
 
-<p style="margin-left:20%; margin-right:20%;">Oh, you are too kind, master Mendel.
+<p style="margin-left:30%; margin-right:20%;">Oh, you are too kind, master Mendel.
 
-<center>LORD BYRON</center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
 
-<p style="margin-left:20%; margin-right:20%;">Maria would have been a famous pianist throughout Europe if she were a boy.
+<p style="margin-left:30%; margin-right:20%;">Maria would have been a famous pianist throughout Europe if she were a boy.
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Oh, father, please, you are exaggerating.
+<p style="margin-left:30%; margin-right:20%;">Oh, father, please, you are exaggerating.
 
-<center>LORD BYRON</center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
 
-<p style="margin-left:20%; margin-right:20%;">Master Mendel is among the most successful businessmen in the country.
+<p style="margin-left:30%; margin-right:20%;">Master Mendel is among the most successful businessmen in the country.
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-<p style="margin-left:20%; margin-right:20%;">Oh, Lord Byron, you are giving me undeserving praise.  You quite well know my success is due to a fortunate inheritance.
+<p style="margin-left:30%; margin-right:20%;">Oh, Lord Byron, you are giving me undeserving praise.  You quite well know my success is due to a fortunate inheritance.
 
-<center>LORD BYRON</center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
 
-<p style="margin-left:20%; margin-right:20%;">Your late parents would have been very proud of you if they were still with us.
+<p style="margin-left:30%; margin-right:20%;">Your late parents would have been very proud of you if they were still with us.
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-<p style="margin-left:20%; margin-right:20%;">Thank you for your kind words, Lord Byron. I had the most loving devoted parents one could wish for. And if you don’t mind I would take leave from you and miss Maria, there are other business matters that demand my presence.
+<p style="margin-left:30%; margin-right:20%;">Thank you for your kind words, Lord Byron. I had the most loving devoted parents one could wish for. And if you don’t mind I would take leave from you and miss Maria, there are other business matters that demand my presence.
 
-<center>LORD BYRON</center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
 
-<p style="margin-left:20%; margin-right:20%;">Well, I will not keep a busy man from attending to his important business. Goodbye master Mendel.
+<p style="margin-left:30%; margin-right:20%;">Well, I will not keep a busy man from attending to his important business. Goodbye master Mendel.
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-<p style="margin-left:20%; margin-right:20%;">Goodbye Lord Byron. (bows courteously) Goodbye Miss Byron.
+<p style="margin-left:30%; margin-right:20%;">Goodbye Lord Byron. (bows courteously) Goodbye Miss Byron.
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Goodbye master Mendel.
+<p style="margin-left:30%; margin-right:20%;">Goodbye master Mendel.
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">I do feel compassion for master Mendel. He must have suffered greatly in his life. 
+<p style="margin-left:30%; margin-right:20%;">I do feel compassion for master Mendel. He must have suffered greatly in his life. 
 
-<center>LORD BYRON</center>
+<p style="margin-left:45%; margin-right:20%;">LORD BYRON</p>
 
-(thoughtful)
+<p style="margin-left:40%; margin-right:20%;">(thoughtful)
 
-<p style="margin-left:20%; margin-right:20%;">Master Mendel’s appearance is an unfortunate quality for such an accomplished man.
+<p style="margin-left:30%; margin-right:20%;">Master Mendel’s appearance is an unfortunate quality for such an accomplished man.
 
 EXT. A HOUSE FURTHER DOWN, ON THE OPPOSITE SIDE OF THE STREET - DAY (A LATER DAY)
 
@@ -210,27 +210,27 @@ EXT. IN A PARK – DAY (SUNNY MORNING)
 
 Maria is walking in the park, she notices Mendel sitting on a bench up ahead. She comes up to him. Mendel stands up to make a courteous bow.
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-(smiling)
+<p style="margin-left:40%; margin-right:20%;">(smiling)
 
-<p style="margin-left:20%; margin-right:20%;">Good morning master Mendel. 
+<p style="margin-left:30%; margin-right:20%;">Good morning master Mendel. 
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
 Good morning Miss Byron. A beautiful morning for a walk, isn’t it? How is Lord Byron’s feeling?
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Thank you master Mendel, father has been quite well thanks to the good weather. 
+<p style="margin-left:30%; margin-right:20%;">Thank you master Mendel, father has been quite well thanks to the good weather. 
 
-<center>MENDEL </center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL </p>
 
-<p style="margin-left:20%; margin-right:20%;">May I keep you company on your walk?
+<p style="margin-left:30%; margin-right:20%;">May I keep you company on your walk?
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Oh yes, please do, I would love to have company. Shall we go to the riverbank?
+<p style="margin-left:30%; margin-right:20%;">Oh yes, please do, I would love to have company. Shall we go to the riverbank?
 
 They walk toward a riverbank. 
 
@@ -238,33 +238,33 @@ EXT. RIVERBANK – DAY 
 
 Marian and Mendel are having a lively and pleasant conversation. 
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-<p style="margin-left:20%; margin-right:20%;">Miss Byron, do you believe marriages are made in Heaven?
+<p style="margin-left:30%; margin-right:20%;">Miss Byron, do you believe marriages are made in Heaven?
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Oh, of course I do. Are you planning to be married? 
+<p style="margin-left:30%; margin-right:20%;">Oh, of course I do. Are you planning to be married? 
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-<p style="margin-left:20%; margin-right:20%;">Well, it was all decided in Heaven when I was about to be born. 
+<p style="margin-left:30%; margin-right:20%;">Well, it was all decided in Heaven when I was about to be born. 
 
-<center>MARIA</center>
+<p style="margin-left:45%; margin-right:20%;">MARIA</p>
 
-<p style="margin-left:20%; margin-right:20%;">Please, do tell me how did Heaven decide on your marriage?
+<p style="margin-left:30%; margin-right:20%;">Please, do tell me how did Heaven decide on your marriage?
 
-<center>MENDEL</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL</p>
 
-(looking straight into her eyes) 
+<p style="margin-left:40%; margin-right:20%;">(looking straight into her eyes) 
 
-<p style="margin-left:20%; margin-right:20%;">When I was about to be born…
+<p style="margin-left:30%; margin-right:20%;">When I was about to be born…
 
 INT. HEAVEN – DAY (SOMEWHERE UP IN HEAVEN)
 
 ANGELS and CUPIDS are preparing souls to be born on earth. An old SAINT with long white hair and white beard is busy behind piles of thick and large books of different kinds.
 
-<center>OLD SAINT</center>
+<p style="margin-left:45%; margin-right:20%;">OLD SAINT</p>
 
 It is time for the next soul to be brought to earth. 
 
@@ -272,27 +272,27 @@ A cupid shoots an arrow upward at a distant cloud setting off a chain of lightni
 
 Another cupid takes his hand to lead him toward the old Saint who is scribing in his large registry book. The old Saint takes a good look at Mendel then points toward a large mirror 
 
-<center>OLD SAINT</center>
+<p style="margin-left:45%; margin-right:20%;">OLD SAINT</p>
 
-<p style="margin-left:20%; margin-right:20%;">You are about to be born into this family.
+<p style="margin-left:30%; margin-right:20%;">You are about to be born into this family.
 
 The mirror shows a young couple on their wedding day. 
 
-<center>OLD SAINT (V.O.)</center>
+<p style="margin-left:45%; margin-right:20%;">OLD SAINT (V.O.)</p>
 
-<p style="margin-left:20%; margin-right:20%;">These are your parents.
+<p style="margin-left:30%; margin-right:20%;">These are your parents.
 
 The mirror shows the wife in labor, and the husband sitting restlessly in a hallway. 
 
-<center>OLD SAINT (V.O.)</center>
+<p style="margin-left:45%; margin-right:20%;">OLD SAINT (V.O.)</p>
 
-<p style="margin-left:20%; margin-right:20%;">You will grow into a handsome and wealthy gentleman. You will be adored by the ladies.
+<p style="margin-left:30%; margin-right:20%;">You will grow into a handsome and wealthy gentleman. You will be adored by the ladies.
 
 The mirror shows Mendel in different luxurious settings, each time with a different beautiful girl in his arm. 
 
-<center>OLD SAINT (V.O.)</center>
+<p style="margin-left:45%; margin-right:20%;">OLD SAINT (V.O.)</p>
 
-<p style="margin-left:20%; margin-right:20%;">However, your will marry a short, unattractive girl with a hunched back. 
+<p style="margin-left:30%; margin-right:20%;">However, your will marry a short, unattractive girl with a hunched back. 
 
 The mirror shows Mendel walking down the aisle on his wedding day with his short hunched-back bride by his side. 
 
@@ -310,9 +310,9 @@ Mendel pulls the angel forward by her hand, he points at her then at his future 
 
 The Angel’s look lingers on Mendel. Their eyes lock. Thick white clouds quickly build up around Mendel, and he finally disappears behind the clouds. There is an echo of a distant thunder. 
 
-<center>MENDEL (V.O.)</center>
+<p style="margin-left:45%; margin-right:20%;">MENDEL (V.O.)</p>
 
-<p style="margin-left:20%; margin-right:20%;">…And then I was born.
+<p style="margin-left:30%; margin-right:20%;">…And then I was born.
 
 The mirror shows Mendel’s mother gave birth to the baby.
 
@@ -338,22 +338,22 @@ Everyone is watching Mendel and Maria sitting at the piano from the mirror. Two 
 
 Lightning and the clouds above their head lights up with warm colors. A chorus of sacred music comes down from above. Everyone stops and looks up above their head, captivated by the music. 
 
-<center>POWERFUL VOICE(O.S.)</center>
+<p style="margin-left:45%; margin-right:20%;">POWERFUL VOICE(O.S.)</p>
 
-(lightning flashes)
+<p style="margin-left:40%; margin-right:20%;">(lightning flashes)
 
-<p style="margin-left:20%; margin-right:20%;">WELL DONE! </p>
+<p style="margin-left:30%; margin-right:20%;">WELL DONE! </p>
 
 The music fades out. 
 
-<center>THE OLD SAINT </center>
+<p style="margin-left:45%; margin-right:20%;">THE OLD SAINT </p>
 
-(claps his hands a few times)
+<p style="margin-left:40%; margin-right:20%;">(claps his hands a few times)
 
- <p style="margin-left:20%; margin-right:20%;">It is time for the next soul to be born.
+ <p style="margin-left:30%; margin-right:20%;">It is time for the next soul to be born.
 
 Another cupid fires his arrow. There are lightning and thunders. Behind the dispersing clouds, the old midwife appears, her eyes are half asleep.
 
 <div align="right";>FADE OUT. </div>
 
-<br><br><br><center>THE END </center>
+<br><br><br><p style="margin-left:45%; margin-right:20%;">THE END </p>
