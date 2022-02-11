@@ -292,7 +292,7 @@ The Angel’s look lingers on Mendel. Their eyes lock. Thick white clouds quickl
 
 <p style="margin-left:45%; margin-right:20%;">MENDEL (V.O.)</p>
 
-<p style="margin-left:30%; margin-right:20%;">…And then I was born.
+<p style="margin-left:30%; margin-right:20%;">…And then I was born. </p>
 
 The mirror shows Mendel’s mother gave birth to the baby.
 
@@ -326,7 +326,7 @@ The music fades out. 
 
 <p style="text-indent:10%; margin-left:40%;margin-right:20%;">THE OLD SAINT <br>(claps his hands a few times)</p>
 
- <p style="margin-left:30%; margin-right:20%;">It is time for the next soul to be born.
+<p style="margin-left:30%; margin-right:20%;">It is time for the next soul to be born. </p>
 
 Another cupid fires his arrow. There are lightning and thunders. Behind the dispersing clouds, the old midwife appears, her eyes are half asleep.
 
