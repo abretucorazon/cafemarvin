@@ -3,8 +3,10 @@ title: "Lesson learned #6: You are a fish"
 date: 2021-11-15T18:31:44.468Z
 template: post
 ---
-\
-“Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid.” The quote is often attributed to Albert Einstein, however, it has not been verified.
+> \
+> “Everybody is a genius. But if you judge a fish by its ability to climb a tree, it will live its whole life believing that it is stupid.” 
+
+This quote is often attributed to Albert Einstein, however, it has not been verified.
 
 If you close your eyes for a moment, and picture this scene in your mind, a young fish at the foot of a tree, it tries to jump and grabs on to the trunk of the tree but fails and falls back on to the ground. It tries and tries repeatedly without success,  with each jump it becomes more and more weary and frustrated. Now turn on one side to look at the nearby trees, you see a dog, a chicken, a pig, all trying to climb a tree wearily. Then turn to the other side, you see a bunch of squirrels joyfully running up and down the trees singing and laughing. An old squirrel school master overseeing this whole exercise shows approval toward the young squirrels and scorns the failing animals. You are at the "Squirrel School for All Young Animals."
 
@@ -22,11 +24,19 @@ How do you gain self-knowledge? The wisdom of the ages has repeatedly said: "Lis
 
 > “[](https://healingbrave.com/collections/all/products/the-way-home-poem "The Way Home Handwritten Poetry Print about Following Your Heart by Jennifer Williamson")Listen to your heart. It knows all things, because it came from the Soul of the World and it will one day return there.” – Paulo Coelho, *The Alchemist* 
 >
+>
+>
 > “The Universe is not outside of you. Look inside yourself; everything that you want, you already are.” – Rumi 
+>
+>
 >
 > “At the center of your being you have the answer; you know who you are and you know what you want.” – Lao Tzu
 >
+>
+>
 > “The intuitive mind is a sacred gift and the rational mind is a faithful servant. We have created a society that honors the servant and has forgotten the gift.” – Albert Einstein
+>
+>
 >
 > “There is a voice that doesn’t use word. Listen.” – Rumi
 
