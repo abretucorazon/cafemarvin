@@ -11,10 +11,8 @@ template: post
 > 
 >    Old age should burn and rave at close of day... 
 >
->        Dylan Thomas
+> Dylan Thomas
 
-<br>
-<br>
 In North-America, there is a practice to open a retirement account early in a person's work life to start saving and growing a retirement fund. There are a large number of investment advisors, plans, and financial instruments available on the market to invest and grow your retirement saving account. It is  wise to save for one's later years. It is also essential for  retirement planning to have an overall view of how the lifestyle after retirement would looks like, the options to choose from, the specific needs in this stage of life, and your own lifestyle preferences. As I observe family and friends in their retirement, and from my own reading, I found I need to update my retirement planning with plans for: Health, Relationship, and Purpose.
 
 <br>
@@ -32,7 +30,7 @@ Then there is a risk of another oversight: have you ever considered the possibil
 >
 >    People who don't have only one.
 >
->        - A wise person
+>    \- A wise person
 
 Similar to saving money for retirement, "saving" good health for  retirement also requires to put a plan into practice early in life. As an example, a quick look at my health-saving plan:  abundant aerobics exercises (I am an avid runner), a plant-based diet, occasional fasting for detox, daily meditation, and regular yoga for healthy joins and good mobility.
 
