@@ -76,7 +76,7 @@ A third cornerstone of post-retirement life is a conscious transition from a pur
 <br>
 <br>
 <br>
-Congratulations, you have finally reached the end of this article. Have you discovered any new practical idea? That would makes my day. My sincere wishes for you: May you dream a thousand dreams now and continuing on well past your retirement. May you be surrounded by people you love who love you until the end. May you contribute to make the world a little better on this journey. And one last quote:
+Congratulations, you have finally reached the end of this article. Have you discovered some new practical idea? That would makes my day. My sincere wishes for you: May you dream a thousand dreams now and continuing on well past your retirement. May you be surrounded by people you love who love you until the end. May you contribute to make the world a little better on this journey. And one last quote:
 
 <br>
 
