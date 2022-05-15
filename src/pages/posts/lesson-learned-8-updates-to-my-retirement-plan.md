@@ -15,7 +15,6 @@ In North-America, there is a practice to open a retirement account early in a pe
 
 <br>
 <br>
-<br>
 
 ## Health
 
@@ -39,7 +38,6 @@ For your inspiration, this book: "Younger next year" tells the story of Chris Cr
 
 <br>
 <br>
-<br>
 
 ## Relationships
 
@@ -58,7 +56,6 @@ Watch the Master himself gave an introduction to NVC in this short video:
 
 <br>
 <br>
-<br>
 
 ## Purposes 
 Humans have an innate creative drive to transform time and energy into some creations like objects, events, experiences, ideas, or processes. Each person manifests this creative drive in some particular domains that will fulfill their need to find meanings and purpose out of life. According to the Bible, God created humans from his image, since God is the Almighty Creator, I beleive humans are mini-creators. We are more like worker bees than pandas. Prolonged idleness or leisure are hazardous to our health and happiness. Work becomes play, and brings us great joy when it is meaningful-our authentic self-expression. Khalil Gibran said it beautifully: *"Work is love made visible"* in his classic book "The Prophet."
@@ -71,7 +68,6 @@ A third cornerstone of post-retirement life is a conscious transition from a pur
 - Volunteer regularly to giveback in the spirit of service, and to reconnect with your community.
 - Reconnect with nature: regular walks in nature have a rejuvenating effect on the mind and body. Or better, relocate to live close to nature. Gardening and growing foods reconnect us with the working of nature's ecosystems.
 
-<br>
 <br>
 <br>
 Congratulations, you have finally reached the end of this article. Have you discovered some new practical idea? That would make my day. My sincere wishes for you: May you dream a thousand dreams now and continuing on well past your retirement. May you be surrounded by people you love who love you until the end. May you contribute to make the world a little better on this journey. And one last quote:
@@ -98,11 +94,9 @@ Congratulations, you have finally reached the end of this article. Have you disc
 >    \- J.R.R. Tolkien
 
 <br>
-<br>
 
 ---
 
-<br>
 <br>
 <br>
 
