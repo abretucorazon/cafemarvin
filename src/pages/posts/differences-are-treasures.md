@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #7: Differences are treasures"
+title: "#7. Differences are treasures"
 date: 2022-02-04T20:28:51.150Z
 template: post
 ---
