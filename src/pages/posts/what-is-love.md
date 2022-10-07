@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #10:    What is love?"
+title: "#10.    What is love?"
 date: 2022-10-07T19:43:00.559Z
 template: post
 ---
