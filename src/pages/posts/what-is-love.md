@@ -16,9 +16,8 @@ Love is an immense source of energy, a universal life force that runs deep withi
 
 For many years,  I went out into the world, in search for “The Love of my life.” To my amazement, I learned that The Love *of* my life is not out there. And it is not a person. It is the Love *for* my life I carry within me.
 
-   >Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.
->
->        - Rumi
+   >Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it.<br>
+>        \- Rumi
 
 Fear erects walls that trap and bury love deep in the depth the subconscious. Our minds are conditioned, trained, educated to embrace fear as the guiding force for navigating throu life. Our conscious minds are addicted to fear. Fear permeates all our thoughts, beliefs, and values. Fears become the backdrop of every aspect of our lives in various shapes and sizes like anxieties, worries, resentment, anger, restlessness, loneliness, hatred, guilt, shame, .... Once in many moons, we come across a person that triggers our heart to open and we can feel love swelling up in our heart. We confound that person to be the source of love that fills up our hearts and declare that we have found "The Love of our life." We actually mistake the person that rubbed the magic lamp and let the genie out, to be the genie himself. We became dependent and possessive for fear of loosing the person that is able to trigger our hearts to open for us to feel love. We resort to every possible strategy to keep this person for ourself. Seduction, deceit, manipulation, promises of our undying love, baits like fame, money, attention, sex, affection, power, excitment, the moon, or the world,....
 
@@ -26,16 +25,15 @@ We plead, beg, threaten, guilt, shame, or force their loyalty. We promise everyt
 
 This Love as a mighty immense source of energy that lives within everyone is a difficult concept that takes a quantum leap to wrap our mind around. It is the Tao in Taoism, God in Christianity, Sufism and Islam. And  Compassion in Budhism. Did you know what "Aloha" means in Hawaiian language? It means,   "In the presence of Divinity"
 
-   > Keep breaking your heart until it opens
->
- >        - Rumi
+   > Keep breaking your heart until it opens <br> <br>
+ >        \- Rumi
 
 Spiritual teachings ask us to listen to our heart because it is believed that the mind was not designed to understand love. Love is to be experienced to be known, it can not be explained, or understood intellectually. I can try to offer a modest example in the experience of abundance. We experience abundance when our heart is filled with love-we become selfless, generous, and forgiving. Otherwise, we would feel fearful in our heart, and lacking in our life regardless the size of our material wealth, it will never feel enough. 
 
 
-   > Love is a sea where the intellect drowns
+   > Love is a sea where the intellect drowns <br>
    >
->        - Rumi
+>        \- Rumi
 
     
   
