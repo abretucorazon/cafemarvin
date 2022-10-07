@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #4: I love you"
+title: "#4. I love you"
 date: 2021-05-30T16:04:46.972Z
 template: post
 ---
