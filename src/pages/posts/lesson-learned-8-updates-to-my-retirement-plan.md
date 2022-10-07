@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #8: Updates to my retirement plan"
+title: "#8. Updates to my retirement plan"
 date: 2022-05-15T20:27:43.275Z
 template: post
 ---
