@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #1: To love well"
+title: "#1. To love well"
 date: 2020-08-23T16:35:21.179Z
 template: post
 ---
