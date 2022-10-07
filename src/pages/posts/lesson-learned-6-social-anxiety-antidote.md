@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #6: You are a fish"
+title: "#6. You are a fish"
 date: 2021-11-15T18:31:44.468Z
 template: post
 ---
