@@ -1,5 +1,5 @@
 ---
-title: "Lesson learned #5: When love went away"
+title: "#5. When love went away"
 date: 2021-10-10T03:09:20.981Z
 template: post
 ---
