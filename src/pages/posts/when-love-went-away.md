@@ -1,5 +1,5 @@
 ---
-title: "#5. When love went away"
+title: "#5. When love is gone"
 date: 2021-10-10T03:09:20.981Z
 template: post
 ---
@@ -96,8 +96,6 @@ The courage to change is “the courage to stay.”
 2. Marriage is a complex mixture of emotions, finance, moral values, traditions, religion, gender politics, civil laws, and more…. Most of these components are invisible until a divorce comes into the picture then issues from each of these areas all surface out of thin air.
 3. Bill and Hilary, Bill and Melinda are wealthy, successful, and famous couples who do not live their lives according to the same rules as the population at large. Most people including myself do not have intimate knowledge of the lives of people in high society. The observations in this article are based on the publicly available information.
 4. This article does not mean to pass judgements or to contribute to the gossips around sensational events of the day. The objective is to follow the advice of a wise man who, once said: “Only fools learn from their own mistakes.”
-
-   </br>
 
 ### RESOURCES:
 
